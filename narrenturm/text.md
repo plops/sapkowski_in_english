@@ -1867,3 +1867,368 @@ Mist quickly began to rise from the river; the scow started to disappear. Reynev
 “Sir Silesian!” came a call from the river.
 “Yes?”
 “*Stół z powyłamywanymi nogami*!”
+
+
+
+
+**Chapter 6**
+in which Reynevan first gets a beating, and then sets off for Strzelin in the company of four people and one dog. The boredom of the journey is enlivened by a dispute about heresies, which supposedly foam up like cockle.
+
+At the edge of the forest, amidst green bistorts, a stream flowed merrily, its sunlit water meandering along a path marked by a line of willows. There, where a clearing began and the road entered the forest, the stream's banks were spanned by a small bridge of thick logs, logs so black, mossy, and old, as if the structure had been built in the time of Henryk the Pious. On the bridge stood a traveler's wagon, hitched to a bay, rather scrawny nag. The wagon was tilted sharply. It was easy to see why.
+"A wheel," Reynevan stated the fact, approaching. "There's trouble, eh?"
+"Bigger than you think," she replied, smearing tar on her sweaty forehead, a young, red-haired, and pretty, though somewhat stout, woman. "Our axle-pin broke."
+"Ha. Then you can't move without a blacksmith."
+"Oh, oh!" The second traveler, a bearded Jew in modest but neat and by no means poor attire, clutched his fox-fur cap. "God of Isaac! Misfortune! Woe! What then are we to do?"
+"You were traveling," Reynevan guessed from the direction the wagon tongue pointed, "to Strzelin?"
+"You guessed right, young sir."
+"I'll help you, and you'll give me a ride in return. I, you see, am also heading that way. And I too have troubles..."
+"It's not hard to figure out," the Jew moved his beard, and his eyes gleamed slyly. "That you're a nobleman, young sir, that's clear. So where then is your horse? You intend to travel by cart, though you are clearly no Lancelot? But never mind. You have an honest face. I am Hiram ben Eliezer, rabbi of the Brzeg kahal. On my way to Strzelin..."
+
+72
+"And I am," the red-haired woman merrily interjected, imitating the Jew's manner of speaking, "Dorota Faber. On my way into the wide world. And you, young sir?"
+"My name," Reynevan decided after a brief moment of hesitation, "is Reinmar Bielau. Listen. We'll do this. We'll somehow get the wagon off the bridge, unhitch the mare, I'll ride her bareback to the Oława outskirts, with that axle-pin, to the blacksmith. If need be, I'll bring him back. Let's get to work."
+It turned out not to be so easy.
+Dorota Faber was of little help, the elderly rabbi of none. Though the scrawny mare stubbornly beat her hooves against the rotten logs and strained against the horse collar, they moved the wagon barely a fathom. Reynevan couldn't lift the vehicle by himself. They finally sat down by the broken axle and watched, panting, the gudgeons and lampreys, which made the sandy bottom of the little river teem.
+"You said," Reynevan asked the redhead, "that you're going out into the world. Where to?"
+"To earn my bread," she replied freely, wiping her nose with the back of her hand. "For now, since the Jewish gentleman kindly took me on his wagon, with him to Strzelin, then, who knows, perhaps even to Wrocław itself. In my trade, I'll find work anywhere, but I'd like the best..."
+"In your... trade?" Reynevan began to connect the dots. "That... that means... that..."
+"Exactly. I am... How do you say it... That, well... A public sinner. Until recently, from the 'Under the Crown' brothel in Brzeg."
+"I understand," Reynevan nodded gravely. "And you were traveling together? Rabbi? You? You took... Hmm... A courtesan on your wagon?"
+"Why shouldn't I have taken her?" Rabbi Hiram's eyes widened. "I took her. Indeed, young sir, I'd have come off as a terrible churl if I hadn't taken her."
+The mossy logs creaked under footsteps.
+"Trouble?" asked one of the three men who had stepped onto the bridge. "Can we help?"
+"It would be welcome," Reynevan admitted, though the unpleasant faces and shifty little eyes of the eager helpers did not appeal to him at all. It turned out he was right. As soon as the wagon, pushed by many pairs of strong hands, found itself on the meadow beyond the bridge.
+"Well now!" said the tallest of the types, overgrown with hair up to his eyes, shaking a cudgel. "Job's done, now it's time to pay. Unhitch the horse from the wagon, you scurvy dog, take off your fur coat, hand over your purse. You, young master, take off your doublet and step out of your boots. And you, pretty one, step out of everything, you'll pay in a different way. On your knees!"
+His comrades guffawed, baring rotten teeth. Reynevan bent down and picked up the wheel he had used to lever the wagon.
+"Look at him," the hairy one pointed at him with the cudgel, "what a combative young master. Life hasn't taught him yet that when they tell you to give up your boots, you have to give them up. Because you can walk barefoot, but not on broken legs. Heigh-ho! Beat him!"
+73
+The types nimbly dodged the whistling windmill of blows with which Reynevan surrounded himself. One got behind him and, with a practiced kick to the knee, knocked the boy to the ground, then howled and staggered, shielding his eyes from the nails of Dorota Faber, who was sitting on his neck. Reynevan was hit across the shoulder with a cudgel, curled up under kicks and blows from sticks, saw one of the types fell the Jew, who was trying to intervene, with a punch. And then he saw a devil.
+The thugs started screaming. Terribly.
+What got to the thugs was not, of course, any devil. It was a large, pitch-black dog, a mastiff, wearing a spiked collar on its neck. The dog writhed among the thugs like black lightning, attacking not like a mastiff, but like a wolf. It bit with its fangs and released. To bite another. In the calves. In the thighs. In the crotches. And when they fell, in their hands and faces. The screams of those bitten became macabrely thin. It made one's hair stand on end.
+A piercing, modulated whistle sounded. The black mastiff immediately jumped away from the thugs, sat motionless with ears pricked. Like a figure of anthracite.
+A rider entered the bridge. Dressed in a short grey cloak fastened with a silver clasp, a tight-fitting wams, and a chaperon with a long tail draped over his shoulder.
+"When the sun peeks over the top of that spruce tree," the newcomer spoke resonantly, straightening his by no means portly figure on a black stallion, "I'll set Beelzebub on your trail, you scoundrels. That's how much time you have, you gallows-birds. And since Beelzebub is swift, I advise running. And I advise against breaks in your run."
+The gallows-birds didn't need to be told twice. They fled into the forest, limping, groaning, and looking back fearfully. Beelzebub, as if he knew what would frighten them more, looked not at them, but at the sun and the top of the spruce.
+The rider lightly urged his stallion forward. He rode closer, looking down from his saddle at the Jew, Dorota Faber, and Reynevan, who was just getting up, feeling his ribs and wiping blood from his nose. The rider, as the boy did not fail to notice, observed Reynevan with particular attention.
+"Well, well," he said at last. "A classic situation. Like in a fairy tale. A swamp, a bridge, a wheel, trouble. And help as if by magic. You didn't summon it, did you? Aren't you afraid I'll take out and make you sign pacts with the devil?"
+"No," said the rabbi. "Wrong fairy tale."
+The rider snorted.
+"I am Urban Horn," he announced, still looking directly at Reynevan. "Whom did I and my Beelzebub assist?"
+"Rabbi Hiram ben Eliezer of Brzeg."
+"Dorota Faber."
+"Lancelot of the Cart," Reynevan, despite everything, still didn't quite trust him.
+Urban Horn snorted again, shrugged his shoulders.
+74
+"I trust you are heading towards Strzelin. I overtook a traveler on the highway, heading there as well. If you'll allow me to advise, it would be better to ask for a ride than to stand here over a broken wheel until nightfall. Better. And safer."
+Rabbi Hiram ben Eliezer cast a longing glance at his vehicle, but by nodding his beard, he conceded the stranger's point.
+"And now," the stranger looked over the forest, at the top of the spruce, "farewell. Duty calls."
+"I thought," Reynevan dared, "you were only scaring them..."
+The rider looked him in the eyes, and his gaze was cold. Icy, in fact.
+"I was scaring them," he admitted. "But I, Lancelot, never make idle threats."
+
+***
+
+The traveler announced by Urban Horn turned out to be a priest. A portly man with a deeply shaven tonsure, dressed in a cloak trimmed with polecat fur, driving a large wagon.
+The priest stopped his horse, listened to the story without getting down from the driver's seat, examined the wagon with the broken axle, carefully observed each of the three humbly begging individuals, and finally understood what the beggars were begging for.
+"What do you mean?" he finally asked with great disbelief. "To Strzelin? On my wagon?"
+The supplicants adopted even more supplicating postures.
+"I, Filip Granciszek of Oława, pastor of Our Lady of Consolation, a good Christian and Catholic clergyman, am to take a Jew onto my cart? A whore? And a vagrant?"
+Reynevan, Dorota Faber, and Rabbi Hiram ben Eliezer looked at each other, their expressions grim.
+"Get in," the priest finally announced dryly. "Indeed, I'd come off as a terrible churl if I didn't take you."
+
+***
+
+Not an hour had passed when Beelzebub, glistening with dew, appeared before the dun gelding pulling the priest's wagon. And a little later, Urban Horn appeared on the highway on his black horse.
+75
+"I'll ride with you to Strzelin," he announced casually. "If, of course, you have no objection."
+No one had any objection.
+No one asked about the fate of the gallows-birds. And from Beelzebub's wise eyes, nothing could be read.
+Or everything.
+
+***
+
+And so they rode along the Strzelin highway, through the Oława river valley, sometimes amidst dense forests, sometimes amidst vast heathlands and meadows. Ahead, like a laufer, ran the mastiff Beelzebub. The dog patrolled the road, sometimes disappearing into the forest, rummaging in thickets and grasses. Chasing and barking at startled hares or jays, however, did not happen; it was clearly beneath the dignity of the black beast. Urban Horn, the mysterious stranger with cold eyes, riding beside the wagon on his black colt, never had to scold or call back the dog.
+Dorota Faber drove the priest's wagon, hitched to a dun gelding. The red-haired harlot from Brzeg had begged this of the pastor and clearly treated it as a kind of payment for the ride. And she drove excellently, with great skill. This way, Father Filip Granciszek, sitting beside her on the driver's seat, could doze or discuss without fear for the vehicle.
+On the wagon, on sacks of oats—depending on the circumstances—Reynevan and Rabbi Hiram ben Eliezer dozed or discussed.
+At the end, tied to the side-rail, trotted the scrawny Jewish mare.
+So they rode, dozed, discussed, stopped, discussed, dozed. They ate this and that. They drank a clay jug of vodka that Father Granciszek had pulled from his saddlebags. They drank another, which Rabbi Hiram pulled from under his fur coat.
+Quickly, just beyond Brzezimierz, it came to light that the pastor and the Jew were traveling to Strzelin for almost identical purposes—for an audience with the canon of the Wrocław chapter, who was visiting the town and parish. However, if Father Granciszek was traveling, as he confessed, by summons, not to say on the carpet, the rabbi only hoped to obtain an audience. The pastor didn't give him much chance.
+"The venerable canon," he said, "has a lot of work there. Numerous matters, courts, countless audiences. For difficult times have befallen us, oh, difficult."
+"As if," Dorota Faber pulled the reins, "they were ever easy."
+"I speak of difficult times for the Church," Father Granciszek emphasized. "And for the true faith. For the cockle of heresy is spreading, spreading. You meet someone, they greet you in God's name, and you wouldn't guess if they weren't a heretic. Did you say something, rabbi?"
+76
+"Love thy neighbour," mumbled Hiram ben Eliezer, whether not in his sleep. "The prophet Elijah can appear with any face."
+"Oh," Father Filip waved his hand dismissively. "Jewish philosophy. And I say: vigilance and work, vigilance, work, and prayer. For Peter's rock trembles and sways. The cockle of heresy is spreading, spreading all around."
+"That," Urban Horn reined in his horse to ride right beside the wagon, "you've already said, pater."
+"And it's true," Father Granciszek, it seemed, was completely awake now. "No matter how many times one says it, it's true. Heresy is spreading, apostasy is multiplying. False prophets are springing up like mushrooms after rain, ready with their false teachings to distort God's Law. Truly, the apostle Paul wrote prophetically to Timothy: 'For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears; And they shall turn away their ears from the truth, and shall be turned unto fables.' And they will claim, Christ have mercy, that in the name of truth they do what they do."
+"Everything in this world," Urban Horn remarked nonchalantly, "is done under the banner of fighting for truth. And though it's usually about very different truths, one truth benefits from this. The real one."
+"That sounded heretical," the priest frowned, "what you said. As for me, let me tell you, regarding truth, I am more in agreement with what Master Johann Nider wrote in his *Formicarius*. And he compared heretics to those ants living in India, which diligently pick out gold specks from the sand and carry them to their anthill, though they derive no benefit from that metal, neither eating it nor plucking it. Such are, writes Master Nider in *Formicarius*, the heretics, who delve into Holy Scripture and search for grains of truth in it, though they themselves do not know what they would do with that truth."
+"That was very beautiful," sighed Dorota Faber, urging the gelding on. "About those ants, I mean. Oh, almost, when I listen to someone so wise, it makes my stomach clench."
+The priest paid no attention either to her or her stomach.
+"The Cathars," he preached, "otherwise known as Albigensians, who bit the hand that wanted to restore them to the bosom of the Church, like wolves. Waldensians and Lollards, daring to revile the Church and the Holy Father, and calling the liturgy the barking of dogs. The loathsome renegade Bogomils and their ilk, the Paulicians. Alexians and Patripassians, daring to deny the Holy Trinity. Fraticelli from Lombardy, those ragamuffins and bandits, who have more than one clergyman on their conscience. Similar to them are the Dulcinians, followers of Fra Dolcino. Item, various other apostates: Priscillianists, Petrobrusians, Arnoldists, Speronists, Passagians, Messalians, Apostolic Brethren, Pastorelles, Patarenes, and Amauricians. Poplicans and Turlupins, denying the divinity in Christ and rejecting the sacraments, while bowing to the devil. Luciferians, whose name
+77
+clearly states to whom they blasphemously pay homage. And of course, the Hussites, enemies of the faith, the Church, and the Pope..."
+"To make it funnier," Urban Horn interjected with a smile, "all those you mentioned consider themselves righteous, and they regard others as enemies of the faith. As for the Pope, you must admit, Father Pastor, that it is sometimes difficult to choose the right one among the many. As for the Church, all of them, to a man, cry out for the necessity of reform, *in capite et in membris*. Doesn't that make you wonder, venerable sir?"
+"I don't quite understand your words," Filip Granciszek admitted. "But if you meant that heresy grows within the very bosom of the Church, then you are right. Very close to this sin are those who err in faith, who in their pride exaggerate piety. *Corruptio optimi pessima!* To cite, for example, the case of the well-known flagellants. As early as 1349, Pope Clement VI declared them heretics, excommunicated them, and ordered them to be punished, but did that help at all?"
+"It didn't help at all," declared Horn. "They still roamed all over Germany, causing amusement, for there were countless wenches among them, and they would scourge themselves, stripped to the waist, with their tits out. Sometimes with quite nice tits, and I know what I'm talking about, I saw their processions in Bamberg, in Goslar, and in Fürstenwalde. Oh, those little tits of theirs did bounce, they did bounce! The last council condemned them again, but that won't do any good either. Some plague or other calamity will come, and the flagellant processions will start again. They simply must like it."
+"One learned master in Prague," a somewhat dreamy Reynevan joined the discussion, "argued that it's a disease. That some women find blessedness precisely in being scourged naked, in front of everyone. That's why there were and are so many women among the flagellants."
+"I wouldn't advise citing Prague masters at this time," Father Filip suggested tartly. "Nevertheless, there's something to it. The Preaching Friars argue that much evil stems from carnal lust, and that in woman it is insatiable."
+"Leave women," Dorota Faber spoke up unexpectedly, "in peace. For you yourselves are not without sin."
+"In the Garden of Eden," Granciszek glanced at her, "the serpent set its sights not on Adam, but on Eve, and it probably knew what it was doing. So the Dominicans probably know what they're talking about. But it wasn't my intention to slander women, only that many of the current heresies, by some strange coincidence, have lust and debauchery at their core, as if by some apish perversity, fie, the Church forbids, so let's do the opposite. Does the Church command modesty? Well then, let's stick out our bare arses! Does it call for temperance and propriety? Come on, let's rut like cats in March! Picards and Adamites in Bohemia go about completely naked and copulate all with all, wallowing in sin like dogs, not people. The Apostolic Brethren, Segarelli's sect, did likewise. The Condormientes of Cologne, or
+78
+'those sleeping together,' have carnal relations with each other regardless of sex or kinship. The Paterniani, so called after their wicked apostle, Paternus of Paphlagonia, do not recognize the sacrament of marriage, which does not prevent them from indulging in communal debauchery, especially that which makes conception impossible."
+"Interesting," Urban Horn said thoughtfully.
+Reynevan blushed, and Dorota snorted, proving that the matter was not entirely foreign to her.
+The wagon jolted on a bump, so sharply that Rabbi Hiram woke up, and Father Granciszek, who was about to launch into another speech, nearly bit off his tongue. Dorota Faber clucked at the gelding, snapped the reins. The presbyter adjusted his position on the driver's seat.
+"There were and are others too," he continued, "who sin in the same way as the flagellants, meaning with excessive piety, from which it is only a step to perversions and heresy. Like, for example, the Disciplinati, similar to the flagellants, like the Battuti, like the Circumcellions, like the Bianchi, or Whites, like the Humiliati, like the so-called Lyons Brethren, like the Joachimites. We know this from our own Silesian backyard too. I'm talking about the Beghards of Świdnica and Nysa."
+Reynevan, though he had a slightly different opinion of Beghards and Beguines, nodded his head. Urban Horn did not nod.
+"The Beghards," he said calmly, "called *fratres de voluntaria paupertate*, the voluntarily poor, could have been a model for many priests and monks. They also had considerable merits for society. Suffice it to say that it was the Beguines in their hospitals who suppressed the plague in the year sixty, preventing the epidemic from spreading. And that means thousands of people saved from death. Indeed, the Beguines were beautifully repaid for this. With accusations of heresy."
+"There were among them," the priest agreed, "indeed, many pious people full of devotion. But there were also apostates and sinners. Many Beguinages, and even those praised hospices, turned out to be cradles of sin, blasphemy, heresy, and vile debauchery. Much evil also took root among the wandering Beghards."
+"You are free to think so."
+"Me?" Granciszek huffed. "I am a simple pastor from Oława, what do I have to do with thinking? The Beghards were condemned by the Council of Vienne and Pope Clement, almost a hundred years before my birth. I wasn't in the world when, in the year thirteen hundred and thirty-two, the Inquisition exposed among the Beguines and Beghards practices as horrible as digging up graves and profaning corpses. I wasn't in the world in seventy-two, when, by virtue of new papal edicts, the Inquisition was renewed in Świdnica. The investigation, which proved the heresy of the Beguines and their connections with the renegade Brotherhood and Sisterhood of the Free Spirit, with Picard and Turlupin filth, as a result of which Dowager Duchess Agnes closed the Świdnica Beguinages, and the Beghards and Beguines..."
+79
+"Beghards and Beguines," Urban Horn finished, "were hunted and pursued throughout Silesia. But here too, you'll gladly wash your hands of it, Oława pastor, because it was before your birth. Know that it was also before mine. Which doesn't prevent me from knowing how it really was. That most of the captured Beghards and Beguines were tortured to death in dungeons. Those who survived were burned. And a considerable group, as usual, saved their skins by denouncing others, delivering companions, friends, even close relatives to torture and death. Some of the traitors later donned Dominican habits and displayed a truly neophytic zeal in the fight against heresy."
+"You think," the pastor looked at him sharply, "that's bad?"
+"To denounce?"
+"To fight heresy with zeal. You think that's bad?"
+Horn turned sharply in his saddle, and his face changed.
+"Don't try," he hissed, "those tricks with me, pater. Don't be, for fuck's sake, such a Bernard Gui. What will you gain from cornering me with a tricky question? Look around. We're not at the Dominicans', but in the Brzezimierz Woods. If I feel threatened, I'll simply bash your head in and throw you into a tree hollow. And in Strzelin, I'll say you died on the way from a sudden overheating of the blood, from a surge of fluids and humors."
+The priest paled.
+"Fortunately for both of us," Horn finished calmly, "it won't come to that, for I am neither a Beghard, nor a heretic, nor a sectarian from the brotherhood of the free spirit. But don't try inquisitorial tricks, Oława pastor. Agreed? Huh?"
+Filip Granciszek didn't answer, just nodded his head a few times.
+
+***
+
+When they stopped to stretch their legs, Reynevan couldn't hold back. He privately asked Urban Horn the reason for his sharp reaction. Horn initially didn't want to talk, limiting himself to a few curses and grumbles about damned homegrown inquisitors. Seeing, however, that this wasn't enough for Reynevan, he sat on a fallen log and called his dog.
+"All their heresies, Lancelot," he began quietly, "concern me as much as last year's snow. Though only a fool, and I don't consider myself one, wouldn't notice that this is a *signum temporis* and that it's time to draw conclusions. That maybe it would be worth changing something? Reforming or something? I try to understand. And I can understand that it gets to them when they hear that there is no God, that one can and should whistle at the Decalogue, and that Lucifer must be worshipped. I understand them when they scream about heresy at such a dictum. But what turns out? What enrages them the most? Not apostasy and godlessness, not the negation of sacraments, not revisions of dogmas or denial of the same, not demonolatry. What infuriates them most are calls for evangelical poverty. For humility. For devotion. For serving. God and people. They go mad when someone demands they renounce power and money. That's why they threw themselves with such fury at the Bianchi, at the Humiliati, at Gerard Groote's brotherhood, at the Beguines and Beghards, at Hus. Dammit, I consider it a miracle they didn't burn the Poverello, Francis the Little Poor Man! But I fear that every day a pyre burns somewhere, and on it some anonymous, unknown, and forgotten Poverello."
+Reynevan nodded his head.
+"That's why," Horn finished, "it annoys me so much."
+Reynevan nodded once more. Urban Horn watched him attentively.
+"I've talked too much, no doubt about it," he yawned. "And such talk can be dangerous. Many a man has, as they say, cut his own throat with his own overly long tongue... But I trust you, Lancelot. You don't even know why."
+"Oh, but I do," Reynevan smiled forcedly. "If you suspected I was informing, you'd bash my head in, and in Strzelin you'd say I died from a sudden surge of fluids and humors."
+Urban Horn smiled. Very wolfishly.
+
+***
+
+"Horn?"
+"I'm listening, Lancelot."
+"It's not hard to see that you're a well-traveled and knowledgeable man. Do you happen to know which of the magnates has estates in the close vicinity of Brzeg?"
+"And whence," Urban Horn's eyes narrowed, "this curiosity? So dangerous in these times?"
+"From the usual place. Curiosity."
+"How else," Horn raised the corners of his lips in a smile, but the suspicious glint by no means disappeared from his eyes. "Well, I shall satisfy your curiosity to the best of my modest abilities. In the vicinity of Brzeg, you say? Konradswaldau belongs to the Haugwitz family. The Bischofsheims are seated in Jankowice, Hermsdorf is the Gall family's estate... As for Schönau, from what I know, Bertold de Apolda, the cupbearer, resides there..."
+"Does any of them have a daughter? Young, fair-haired..."
+"My knowledge," Horn cut him off, "does not extend that far. Nor is it accustomed to. And I advise you against it too, Lancelot. Ordinary curiosity, knights can tolerate, but they greatly dislike it when someone takes too much interest in their daughters. And wives..."
+"I understand."
+"Good."
+
+**Chapter 7**
+in which Reynevan and his company arrive in Strzelin on the eve of the Assumption of Mary and, as it turns out, just in time for a burning. Then, those who should, listen to the teachings of the canon of Wrocław Cathedral. Some with more, others with less enthusiasm.
+
+Beyond the village of Höckricht, near Wiązów, the hitherto empty highway became somewhat populated. Besides peasant carts and merchant wagons, horsemen and armed men also appeared, so Reynevan deemed it advisable to cover his head with his hood. Beyond Höckricht, the road, winding through picturesque birch groves, became deserted again, and Reynevan breathed a sigh of relief. A little prematurely.
+Beelzebub once again demonstrated great canine wisdom. Until now, he hadn't even growled at the soldiers passing them, but now, unfailingly sensing their intentions, he warned with a short but sharp bark about the armed men on horseback who unexpectedly emerged from the birch groves on both sides of the road. He also growled ominously when, upon seeing him, one of the squires accompanying the knights took a crossbow from his back.
+"Hey, you there! Halt!" shouted one of the knights, young and freckled as a quail's egg. "Halt, I say! Stay where you are!"
+The mounted squire riding beside the knight inserted his foot into the crossbow's stirrup, skillfully drew it, and armed it with a bolt. Urban Horn rode slightly ahead at a light pace.
+"Don't you dare shoot the dog, Neudeck. Take a good look at him first. And come to the conclusion that you've seen him before."
+"By God's five wounds!" The freckled man shielded his eyes with his hand to protect them from the blinding flicker of the wind-tossed birch leaves. "Horn? Is that really you?"
+"None other. Tell the squire to leave the crossbow."
+"Sure, sure. But keep the dog. Besides, we're here on an investigation. In pursuit. So I must ask you, Horn, who is with you? Who is riding?"
+82
+"Let's first clarify," Urban Horn said coolly, "this matter: for whom are you gentlemen in pursuit? Because if it's for cattle rustlers, for example, then we're out. For many reasons. Firstly: we have no cattle. Secondly..."
+"Alright, alright," the freckled one had already managed to look at the priest and the rabbi, and waved his hand dismissively. "Just tell me: do you know all these people?"
+"I know them. Is that enough?"
+"Enough."
+"We beg your pardon, venerable sir," the second knight, in a sallet and full armor, bowed slightly before Pastor Granciszek, "but we are by no means inconveniencing you for mere amusement. A crime has been committed, and we are on the trail of the murderer. By order of Sir von Reideburg, the Strzelin starosta. This here is the noble Sir Kunad von Neudeck. And I am Eustachy von Rochow."
+"What crime is this?" asked the pastor. "By God! Was someone killed?"
+"Killed. Not far from here. The noble Albrecht Bart, lord of Karczyn."
+For a while, there was silence. In which Urban Horn's voice was heard. And it was a changed voice.
+"How? How did it happen?"
+"It happened strangely," Eustachy von Rochow replied slowly, after a moment he had devoted to suspicious observation. "Firstly: in broad daylight. Secondly: in combat. If it weren't impossible, I'd say it was a duel. It was one man, mounted, armed. He killed with a sword thrust, and a very sure one, requiring great skill. In the face. Between the nose and the eye."
+"Where?"
+"A quarter of a mile beyond Strzelin. Sir Bart was returning from a visit to a neighbour."
+"Alone? Without men?"
+"That's how he rode. He had no enemies."
+"Eternal rest," murmured Father Granciszek, "grant unto him, O Lord. And light..."
+"He had no enemies," Horn repeated, interrupting the prayers. "But are there suspects?"
+Kunad Neudeck rode closer to the wagon, eyeing Dorota Faber's bust with clear interest. The courtesan gifted him with a lovely smile. Eustachy von Rochow also rode up. And he too bared his teeth. Reynevan was very pleased. Because no one was looking at him.
+"There are," Neudeck tore his gaze away, "several suspects. A few suspicious characters were loitering in the area. Some pursuit, some family feud, something of that sort. Individuals like Kunz Aulock, Walter de Barby, and Stoik of Gorgowice were even seen here. Rumor has it that some young lad seduced a knight's wife, and that knight is seriously set on getting the rascal. And is chasing after him."
+"It cannot be ruled out," added von Rochow, "that this pursued rascal, having chanced upon Sir Bart, panicked and killed Sir Bart."
+83
+"If so," Urban Horn picked his ear, "then you'll easily get him, this, as you say, young spark. He must be more than seven feet tall and about four across the shoulders. It's a bit hard for such a fellow to hide among ordinary people."
+"True," Kunad Neudeck admitted grimly. "Sir Bart was no weakling, he wouldn't have been bested by just any lout... But it could be that sorcery or witchcraft was used there. They say that seducer of other men's wives is also a sorcerer."
+"Most Holy Mother!" exclaimed Dorota Faber, and Father Filip crossed himself.
+"And besides," Neudeck finished, "it will all come out. Because when we catch this young spark, we'll question him about the details, oh, we'll question him... And it won't be hard to recognize him one way or another. We know he's comely and rides a grey horse. If you should encounter such a one..."
+"We shall not fail to report it," Urban Horn promised calmly. "A comely youth, a grey horse. Impossible to overlook. Or mistake for anything else. Farewell."
+"Do the gentlemen perhaps know," Father Granciszek inquired, "if the Wrocław canon is still staying in Strzelin?"
+"Indeed. He is holding court at the Dominicans'."
+"Is it His Reverence Notary Lichtenberg?"
+"No," denied von Rochow. "His name is Beess. Otto Beess."
+"Otto Beess, provost of Saint John the Baptist," murmured the priest, as soon as the starosta's knights had gone their way and Dorota Faber had urged the gelding on. "He is a stern man. Very stern. Oh, rabbi, slim hopes that he will grant you an audience."
+"Not at all," spoke Reynevan, beaming for a few moments. "You will be received, Rabbi Hiram. I promise you that."
+Everyone looked at him, but Reynevan only smiled mysteriously. Then, very cheerful, he jumped off the wagon and walked beside it. He fell slightly behind, at which point Horn rode up to him.
+"Now you see," he said quietly, "how it is, Reinmar Bielau. How quickly ill repute sticks. Hired thugs, villains of Kyrieleison's and Walter de Barby's ilk, ride around the countryside, and if they kill someone, suspicion falls on you first. Do you notice the irony of fate?"
+"I notice," Reynevan grumbled, "two things. First, that you do know who I am. Probably from the very beginning."
+"Probably. And the second?"
+"That you knew the murdered man. That Albrecht Bart of Karczyn. And I'll bet my head that you're going to Karczyn. Or were going."
+"Well, now," Horn said after a moment, "how clever you are. And how self-assured. I even know whence this assurance flows. It's good to have acquaintances in high places, eh? Wrocław canons? One immediately feels better. And safer. Yet it can be a deceptive feeling, oh, so deceptive."
+84
+"I know," Reynevan nodded. "I constantly remember the tree hollow. The humors and fluids."
+"And it's very good that you remember."
+
+***
+
+The road led up a hill on which stood a gallows, and on it hung three hanged men, all dried out like stockfish. And below, Strzelin spread out before the travelers, with its colorful suburb, town wall, castle from the times of Bolko the Strict, the very ancient rotunda of Saint Gothard, and the modern towers of monastic churches.
+"Oh," Dorota Faber observed. "Something's happening there. Is it some holiday today or what?"
+Indeed, in the open space beneath the town wall, quite a large crowd had gathered. From the direction of the gate, a procession could be seen heading that way.
+"A procession, I think."
+"More like mystery plays," stated Granciszek. "For today is the fourteenth of August, the eve of the Assumption of the Virgin Mary. Let's go, let's go, Miss Dorota. Let's see it up close."
+Dorota clucked at the gelding. Urban Horn called the mastiff and put him on a leash, evidently aware that amidst the crowd, even a dog as wise as Beelzebub might lose control.
+The procession coming from the town had approached enough for one to distinguish in it several clergymen in liturgical vestments, several black-and-white Dominicans, several grey-brown Franciscans, several mounted knights in jacks adorned with coats of arms, several townsmen in delias reaching almost to the ground. And a dozen or so halberdiers in yellow tunics and dully gleaming sallets.
+"Bishop's soldiers," Urban Horn informed quietly, proving his good information for the umpteenth time. "And that large knight, the one on the bay horse, with the checkerboard emblem, that's Henryk von Reideburg, starosta of Strzelin."
+The bishop's soldiers were leading three people by the arm, two men and a woman. The woman wore a white shift, one of the men wore a pointed, brightly painted cap.
+Dorota Faber snapped the reins, shouted at the gelding and at the crowd of townsfolk reluctantly parting before the wagon. Having descended the hill, however, the wagon's passengers lost visibility—to see anything, they had to stand up, and for that, the vehicle had to be stopped. And anyway, it was impossible to go further, the crowd had already become too dense.
+85
+Standing up, Reynevan saw the heads and shoulders of the three, two men and a woman. And rising above their heads, the stakes to which they were tied. He didn't see the pyres of brushwood piled up under the stakes. But he knew they were there.
+He heard a voice, raised and loud, but indistinct, muffled and broken by the drone of the crowd. He recognized the words with difficulty.
+"Crimes directed against the social order... *Errores Hussitarum*... *Fides haeretica*... Blasphemy and sacrilege... *Crimen*... Proven in the investigation..."
+"It seems," said Urban Horn, standing in his stirrups, "that an ocular summary of our travel dispute is about to take place here."
+"It looks like it," Reynevan swallowed. "Hey, people! Who are they going to execute?"
+"Heretics," explained a man with the appearance of a beggar, turning around. "They caught heretics. They say, Hussites or something like that..."
+"Not Hussites, but Huss-ites," corrected another, similarly tattered, with an identical Polish accent. "They'll burn them for sacrilege. Because they gave communion to geese."
+"Eh, ignorance!" commented a pilgrim with shells sewn onto his cloak from the other side of the wagon. "They know nothing!"
+"And you know?"
+"I know... Praised be Jesus Christ!" The pilgrim noticed Father Granciszek's tonsure. "The heretics are called Hussites, and it comes from their prophet Hus, not from geese. They say, the Hussites that is, that there is no purgatory at all, and they receive communion in both kinds, that is, *sub utraque specie*. That's why they're also called Utraquists..."
+"Don't lecture us," Urban Horn interrupted, "for we are already learned. Those three, I ask, what will they be burned for?"
+"That I don't know. I'm not from around here."
+"That one there," a local, judging by his clay-stained jerkin, a brickmaker, hurried to explain. "The one in the shameful cap is a Czech, a Hussite envoy, an apostate priest. He came from Tabor in disguise, incited people to rebellion, to burning churches. His own countrymen, those who fled Prague after the year nineteen, recognized him. And the other one is Antoni Nelke, a parish school teacher, a local accomplice of the Czech heretic. He gave him shelter and distributed Hussite writings with him."
+"And the woman?"
+"Elżbieta Ehrlichowa. She's a completely different kettle of fish. By the way. She poisoned her husband with her lover in conspiracy. The lover escaped, otherwise he'd be at the stake too."
+86
+"Now the cat's out of the bag," interjected a thin fellow in a felt cap that clung smoothly to his skull. "For this is her second husband, Ehrlichowa's I mean. She undoubtedly poisoned the first one too, the shrew."
+"Maybe she poisoned him, maybe she didn't, it's a toss-up," a fat townswoman in an embroidered sheepskin jerkin joined the discussion. "They say the previous one drank himself to death. He was a shoemaker."
+"Shoemaker or not, she poisoned him, as sure as amen in the Lord's Prayer," the thin man pronounced. "There must have been some witchcraft involved too, for her to fall under Dominican jurisdiction..."
+"If she poisoned him, then it serves her right."
+"Of course, it serves her right!"
+"Quiet!" shouted Pastor Granciszek, craning his neck. "The priests are reading the verdict, and nothing can be heard."
+"And why should it be heard?" Urban Horn scoffed. "After all, everything is known. Those on the pyres are *haeretici pessimi et notorii*. And the Church, which abhors blood, entrusts the punishment of the guilty to the *brachium saeculare*, the secular arm..."
+"Quiet, I said!"
+"*Ecclesia non sitit sanguinem*," came a voice from the direction of the pyres, broken by the wind and muffled by the murmur of the crowd. "The Church does not thirst for blood and shrinks from it... Let justice and punishment therefore be meted out by the *brachium saeculare*, the secular arm. *Requiem aeternam dona eis*..."
+The crowd roared with a great voice. Something was happening at the pyres. Reynevan stood up, but too late. The executioner was already at the woman, did something behind her back, as if adjusting the rope binding her neck. The woman's head fell to her shoulder, softly, like a cut flower.
+"He strangled her," the pastor sighed quietly, as if he hadn't seen anything similar before. "Broke her neck. The teacher too. They must have both shown remorse during the investigation."
+"And informed on someone," added Urban Horn. "Standard procedure."
+The mob howled and cursed, dissatisfied with the mercy shown to the teacher and the poisoner. The shouting intensified when a living flame burst from the bundles of brushwood, burst violently, instantly engulfing the entire pyres along with the stakes and the people tied to them. The fire roared, rose high, the crowd, struck by the heat, retreated, making the crush even greater.
+"Shoddy work!" shouted the brickmaker. "Crappy job! They took dry brushwood, dry! Like straw!"
+"Indeed, shoddy work," judged the thin man in the felt cap. "The Hussite couldn't even utter a sound! They don't know how to burn. Back home, in Franconia, the abbot of Fulda, oh, he knew how! He supervised the pyres himself. He had the logs arranged so that first only the legs would roast, up to the knees, then higher, up to the balls, then..."
+87
+"Thief!" shrieked a woman hidden in the crowd. "Thieeeeeef! Catch the thief!"
+Somewhere in the crowd a child was crying, someone was playing a fife, someone was swearing, someone was laughing, convulsed in nervous, idiotic laughter.
+The pyres roared with fire, emitting strong blasts of heat. The wind blew towards the travelers, bringing a hideous, suffocating, sweetish smell of burning corpse. Reynevan covered his nose with his sleeve. Father Granciszek coughed, Dorota choked, Urban Horn spat, grimacing terribly. Rabbi Hiram, however, surprised everyone. The Jew leaned out of the wagon and vomited, as violently as it was copiously – onto the pilgrim, onto the brickmaker, onto the townswoman, onto the Franconian, and onto everyone else nearby. The area around immediately cleared.
+"Please forgive me..." the rabbi managed to babble between further paroxysms. "This is no political demonstration. This is ordinary puke."
+
+***
+
+Canon Otto Beess, provost of Saint John the Baptist, settled more comfortably, adjusted his pileus, and examined the claret swirling in his goblet.
+"Please," he said in his usual grating voice, "ensure that the burnt site is thoroughly cleaned and raked. All remains, even the smallest, please collect and scatter into the river. For instances of collecting charred little bones are multiplying. And worshipping them as relics. I ask that the honorable councilmen see to this. And that the brothers oversee it being seen to."
+The Strzelin councilmen present in the castle chamber bowed in silence, the Dominicans and Friars Minor lowered their tonsured heads. Both knew that the canon was accustomed to asking, not ordering. They also knew that the difference was only in the word.
+"The Preaching Friars," Otto Beess continued, "I ask that they continue, in accordance with the guidelines of the bull *Inter cunctas*, to vigilantly monitor all manifestations of heresy and the activities of Taborite emissaries. And to report on the smallest and seemingly insignificant matters connected with such activity. I am also counting here on the help of the secular arm. For which I ask you, noble Sir Henryk."
+Henryk Reideburg bowed his head, but only slightly, then immediately straightened his powerful figure in the checkerboard-adorned *wapenrok*. The Starosta of Strzelin did not hide his pride and arrogance, not even attempting to feign humility and meekness. It was clear that he tolerated the visitation of the church hierarchy because he had to, but was only waiting for the canon to finally leave his territory.
+Otto Beess knew this.
+88
+"I also ask you, Starost Henryk," he added, "to exert greater efforts than hitherto in the investigation into the murder of Sir Albrecht von Bart, committed near Karczyn. The Chapter is keenly interested in apprehending the perpetrators of this crime. Sir von Bart, despite a certain harshness and controversial nature of his views, was a worthy man, *vir rarae dexteritatis*, a great benefactor of the Cistercians of Henryków and Krzeszów. We demand that his murderers receive their deserved punishment. Obviously, we are talking about the real murderers. The Chapter will not be satisfied with blaming a sparrow in the hand. For we do not believe that Sir Bart died at the hands of those Wycliffites burned today."
+"Those Hussites," Reideburg cleared his throat, "might have had some accomplices..."
+"We do not exclude that," the canon pierced the knight with his gaze. "We exclude nothing. Give greater impetus to the investigation, Knight Henryk. Ask, if necessary, for the help of the Świdnica starosta, Sir Albrecht von Kolditz. Ask, for that matter, whomever you wish. As long as there are results."
+Henryk Reideburg bowed stiffly. The canon bowed back, but rather carelessly.
+"Thank you, noble knight," he spoke in a voice that sounded like the opening of a rusty cemetery gate. "I will not detain you longer. I also thank the gentlemen councilors and the holy brothers. I do not interrupt your duties, of which, I trust, you have an abundance."
+The starosta, councilors, and monks exited, shuffling their boots and sandals.
+"The gentlemen clerics and deacons," the canon of Wrocław Cathedral added after a moment, "also, I presume, remember their duties. Please proceed to them. Immediately. The brother secretary and the father confessor remain. Also..."
+Otto Beess raised his head and pierced Reynevan with his gaze.
+"You too stay, boy. I have something to discuss with you. But first, I will receive the petitioners. Please summon the pastor from Oława."
+Father Granciszek, when he entered, his face changed color, paling and reddening alternately in a quite incomprehensible manner. He immediately knelt. The canon did not bid him rise.
+"Your problem, Father Filip," he began gratingly, "is a lack of respect and trust in authority. Individuality and one's own opinion are indeed valuable, sometimes much more worthy of recognition and praise than dull and sheepish obedience. However, there are matters in which authority is absolutely right and infallible. As, for example, our Pope Martin V in the dispute with the conciliarists, various Gersons and various little Poles: Włodkowices, Wyszes, and Łaskarzes, who would like to subject every decision of the Holy Father to discussion. And interpret it according to their own whim. But it is not so, not so! *Roma locuta, causa finita*."
+89
+"Therefore, dear Father Philip, if ecclesiastical authority tells you what to preach, you are to be obedient. Even if your individuality protests and screams, you are to be obedient. Because clearly, a higher purpose is at stake. Higher than you, naturally. And than your entire parish. I see you want to say something. Speak then."
+"Three-quarters of my parishioners," mumbled Father Granciszek, "are not very bright people, I would say, *pro maiori parte illiterati et idiotae*. But there is still that one quarter. The one to whom I can in no way say in my sermons what the curia recommends. I do say, indeed, that the Hussites are heretics, murderers, and degenerates, and that Žižka and Koranda are incarnate devils, criminals, blasphemers, and sacrilegists, that eternal damnation and hellish torments await them. But I cannot say that they eat infants. And that their wives are communal. And that..."
+"You didn't understand?" the canon interrupted him sharply. "You didn't grasp my words, pastor? *Roma locuta!* And for you, Rome is Wrocław. You are to preach as you were told, preacher. About communal wives, about eaten infants, about nuns boiled alive, about tearing out the tongues of Catholic priests, about sodomy. When you receive such guidelines, you will preach that from communion with the chalice, Hussites grow hair on their palates and dog tails on their rumps. I am not joking at all, I have seen the relevant documents in the bishop's chancellery."
+"Besides," he added, looking with slight pity at the shrunken Granciszek, "how do you know they don't grow tails? Have you been to Prague? To Tabor? To Hradec Králové? Did you receive communion *sub utraque specie*?"
+"No!" the pastor almost choked on his breath. "Not at all!"
+"That's very good. *Causa finita*. The audience too. In Wrocław, I'll say that a reprimand was sufficient, that there will be no more trouble with you. Now, so that you don't get the impression of a fruitless peregrination, you will confess to my confessor. And you will perform the penance he assigns you. Father Felicjan!"
+"Yes, Your Reverence?"
+"Lying prostrate before the main altar at Saint Gothard's, the whole night, from Compline to Prime. The rest is at your discretion."
+"May God protect..."
+"Amen. Fare you well, pastor."
+Otto Beess sighed, extended an empty goblet towards a cleric, who immediately filled it with claret.
+"No more petitioners today. Allow me, Reinmar."
+"Venerable father... Before... I have a request..."
+"I'm listening."
+"A rabbi from Brzeg accompanied me on my journey and arrived with me..."
+Otto Beess gestured an order. In a moment, a cleric ushered in Hiram ben Eliezer. The Jew bowed deeply, sweeping the floor with his fox-fur cap. The canon observed him intently.
+90
+"What is it," he rasped, "that the spokesman for the Brzeg kahal desires of me? On what business does he come?"
+"The venerable priest asks, on what business?" Rabbi Hiram raised his bushy eyebrows. "God of Abraham! And on what business, I ask myself, can a Jew come to the venerable canon? What, I ask myself, can it be about? Then I answer that it is about truth. Evangelical truth."
+"Evangelical truth?"
+"None other."
+"Speak, Rabbi Hiram. Do not make me wait."
+"As the venerable priest commands, I shall speak at once, why should I not speak? I say thus: various gentlemen walk about Brzeg, Oława, Grodków, and also the surrounding villages, and they call for the beating of the wicked murderers of Jesus Christ, for the robbing of their homes and the shaming of their wives and daughters. These criers invoke the venerable prelates, as if such beating, robbery, and rape were by divine and episcopal will."
+"Continue, friend Hiram. You see, I am patient."
+"What more is there to say? I, Rabbi Hiram ben Eliezer of the Brzeg kahal, implore the venerable priest to uphold evangelical truths. If one must beat and rob the murderers of Jesus Christ, then please, beat them! But, by forefather Moses, beat the right ones. Those who crucified him. Meaning, the Romans!"
+Otto Beess was silent for a long time, observing the rabbi from under half-closed eyelids.
+"Yeees," he spoke at last. "And do you know, friend Hiram, that for such talk they can lock you up? I speak, of course, of the secular authorities. The Church is lenient, but the *brachium saeculare* can be heavy when it comes to blasphemy. No, no, say nothing, friend Hiram. I will speak."
+The Jew bowed. The canon did not change his position in the armchair, did not even flinch.
+"The Holy Father Martin, fifth of that name, following in the footsteps of his enlightened predecessors, was pleased to declare that Jews, contrary to appearances, are created in God's image and a part of them, however small, will attain salvation. It is therefore inappropriate to persecute them, discriminate against them, repress them, oppress them, and subject them to any other form of torment, including forced baptism. You do not doubt, I trust, friend Hiram, that the Pope's will is a command for every clergyman. Or perhaps you doubt it?"
+"How can I doubt? This must be the tenth Pope in a row to speak of this... So it must be true, no doubt..."
+"If you do not doubt," the canon interrupted, pretending not to hear the mockery, "then you must understand that accusing clergy of inciting attacks on Israelites is slander. I will add: punishable slander."
+The Jew bowed in silence.
+91
+"Of course," Otto Beess narrowed his eyes slightly, "laypeople know little or nothing about papal decrees. Also, Holy Scripture is not easy for them. For they are, as someone quite recently told me, *pro maiori parte illiterati et idiotae*."
+Rabbi Hiram did not even flinch.
+"And your Israelite tribe, rabbi," the canon continued, "with predilection and persistence provides pretexts to the rabble. One time you cause a plague epidemic, having poisoned the wells, another time you torture an innocent Christian maiden, yet another you drain blood from a child for matzah. You steal and desecrate hosts. You engage in vile usury and cut pieces of living flesh from a debtor who cannot repay your thievish interest. And you engage in various other foul practices. As I presume."
+"What must be done, I ask the venerable priest," Hiram ben Eliezer asked after a tense moment. "What must be done so that these things do not happen? Meaning, the poisoning of wells, the torturing of maidens, the draining of blood, and the desecration of hosts? What, I ask, is needed?"
+Otto Beess was silent for a long time.
+"Any day now," he said at last, "a special, one-time tax, covering everyone, will be proclaimed. For the anti-Hussite crusade. Every Jew will have to pay one gulden. The Brzeg community, beyond what it must give, will add of its own free will... One thousand guldens. Two hundred and fifty marks."
+The rabbi nodded his beard. Without attempting to bargain.
+"This money will serve the common good," the canon noted without special emphasis. "And a common, I would say, cause. The Czech heretics threaten us all. Most of all us, true Catholics, of course, but you Israelites also have no reason to love the Hussites. Quite the contrary, I would say. Suffice it to recall March of the year twenty-two, the bloody pogrom in Prague's Old Town. The later massacres of Jews in Chomutov, Kutná Hora, and Písek. So there will be, Hiram, an opportunity to contribute to vengeance, even if only with a donation."
+"Vengeance is mine," Hiram ben Eliezer replied after a moment. "Thus saith the Lord, Adonai. Repay no one evil for evil, saith the Lord. And our Lord, as the prophet Isaiah testifies, is generous in forgiveness."
+"Besides," the rabbi added quietly, seeing the canon remain silent with his hand pressed to his forehead, "the Hussites have only been murdering Jews for six years. What is six compared to a thousand?"
+Otto Beess raised his head. His eyes were as cold as steel.
+"You will come to a bad end, friend Hiram," he rasped. "I fear for you. Depart in peace."
+92
+"Now," he said when the door closed behind the Jew, "it's finally your turn, Reinmar. We'll talk. You don't need to worry about the secretary and the cleric. They are trusted men. They are present, but as if they weren't."
+Reynevan cleared his throat, but the canon didn't let him speak.
+"Duke Konrad Kantner arrived in Wrocław four days ago, on Saint Lawrence's Day. With an entourage composed of monstrous gossips. The Duke himself is not discreet either. Thus, not only I, but almost all of Wrocław is already aware of the intricacies of the extramarital affair of Adela, wife of Gelfrad de Stercza."
+Reynevan cleared his throat again, lowered his head, unable to bear the piercing gaze. The canon folded his hands as if in prayer.
+"Reinmar, Reinmar," he spoke with a somewhat artificial exaltation. "How could you? How could you so offend divine and human law? For it is said: let marriage be held in honor and the bed undefiled, for God will judge fornicators and adulterers. And I will add from myself that very often, divine justice seems too slow for betrayed husbands. And very often they mete it out themselves. Severely they mete it out."
+Reynevan cleared his throat even louder and bowed his head even lower.
+"Aha," Otto Beess guessed. "They're already chasing you?"
+"They are."
+"Nipping at your heels?"
+"They are."
+"Young fool!" the clergyman spoke after a moment of silence. "Lock you up in the Narrenturm, that's what! In the Tower of Fools. You'd fit in perfectly with the tenants there."
+Reynevan sniffled and made a face that, in his own opinion, was contrite. The canon nodded, sighed deeply, intertwined his fingers.
+"You couldn't resist, could you?" he asked knowingly. "Did she appear in your dreams at night?"
+"I couldn't," Reynevan admitted, blushing. "She did."
+"I know, I know," Otto Beess licked his lips, and his eyes suddenly gleamed. "I know that forbidden fruit is sweet, that one desires, oh, desires to embrace unknown breasts. I know that honey drips from the lips of a strange woman, and her palate is smoother than oil. But in the end, believe me, the Proverbs of Solomon teach wisely: she will be bitter as wormwood and sharp as a two-edged sword, *amara quasi absinthium et acuta quasi gladius biceps*. Beware, son, lest you burn for her like a moth in a flame. Lest you follow her to death, lest you perish in the Abyss. Listen to the wise words of Scripture: go far from her on your way, do not approach the doors of her house, *longe fac ab ea viam tuam et ne adpropinques foribus domus eius*."
+"Do not approach the doors of her house," the canon repeated, and from his voice, as if blown away by the wind, the preacher's exaltation vanished. "Lend an ear, Reinmar Bielau. Note well the words of Scripture and mine. Engrave them well in your memory. Listen to advice: stay away from a certain person. Do not do what you intend to do, which I read in your eyes, you rascal. Stay away from her."
+"Yes, venerable father."
+"The affair will be smoothed over somehow in time. The Sterczas will be scared off with the curia and the landfrieden, placated with the customary compensation of twenty marks, the usual fine of ten marks will also have to be paid to the Oleśnica magistrate. All this is little more than the value of a good thoroughbred horse, you'll manage to gather that much with your brother's help, and if need be, I'll contribute. Your uncle, Henryk the scholastic, was a good friend to me. And a teacher."
+"Thanks be to..."
+"But I can do nothing," the canon interrupted sharply, "if they catch you and beat you to death. Do you understand that, you reckless fool? You must get Gelfrad Stercza's wife out of your head once and for all, you must get visiting her secretly out of your head, letters, messengers, everything. You must disappear. Leave. I suggest Hungary. At once, without delay. Understood?"
+"I'd like to go to Balbinów first... To my brother..."
+"Absolutely not allowed," Otto Beess cut him off. "Those who are chasing you have certainly foreseen that. Just as they foresaw a visit to me. Remember: when one flees, one flees like a wolf. Never along paths one once walked."
+"But my brother... Peterlin... If I really have to leave..."
+"I myself, through trusted messengers, will inform Peterlin of everything. As for you, I forbid you to go there. Understood, madman? You are not allowed to travel paths your enemies know. You are not allowed to appear in places where they might be waiting for you. And that means, under no circumstances to Balbinów. And under no circumstances to Ziębice."
+Reynevan audibly sighed, and Otto Beess audibly swore.
+"You didn't know," he ground out. "You didn't know she was in Ziębice. It was I, old fool, who revealed it to you. Well, it's done. But it doesn't matter. It's irrelevant where she is. In Ziębice, in Rome, in Constantinople, or in Egypt, it's irrelevant. You will not approach her, son."
+"I will not."
+"You don't know how much I'd like to believe you. Listen to me, Reinmar, and listen carefully. You will receive a letter, I'll have the secretary write it immediately. Don't worry, the letter will be worded so that only the addressee can understand it. You will take the letter and proceed like a hunted wolf. Along paths you have never walked and where they will not look for you, you will go to Strzegom, to the Carmelite monastery. You will give my letter to the prior there, and he will then introduce you to a certain man. To him, when you are alone, you will say: July eighteenth, year eighteen. He will then ask you: where? You will answer: Wrocław, New Town. Have you memorized it? Repeat."
+94
+"July eighteenth, year eighteen. Wrocław, New Town. And what is all this for? I don't understand."
+"If things were to get really dangerous," the canon explained calmly, "I won't be able to save you. Unless I tonsure you as a monk and lock you up with the Cistercians, under lock and key and behind a wall, and that, I trust, you would prefer to avoid. In any case, I won't be able to get you to Hungary. The one I recommend to you, can. He will ensure your safety, and if need be, defend you. He is a man of rather controversial nature, often unpleasant in manner, but you must endure him, for in certain matters he is irreplaceable. So remember: Strzegom, the monastery of the Brothers of the Order of the Most Blessed Virgin Mary of Mount Carmel, outside the city walls, by the road to the Świdnica Gate. Have you memorized it?"
+"Yes, venerable father."
+"You will set off without delay. Too many people have seen you in Strzelin anyway. You'll get the letter right away and off you go."
+Reynevan sighed. He had sincerely intended to chat somewhere over a beer with Urban Horn. Horn inspired great esteem and admiration in Reynevan, and together with his dog Beelzebub, he was growing in his eyes to at least the stature of Sir Yvain with the Lion. Reynevan was very tempted to make Horn a certain proposition, concerning a matter of precisely knightly character – the joint liberation of a certain oppressed damsel. He also thought of saying goodbye to Dorota Faber. But alas, one does not treat lightly the advice and instructions of men like Canon Otto Beess.
+"Father Otto?"
+"Yes?"
+"Who is this man from the Strzegom Carmelites?"
+Otto Beess was silent for a moment.
+"Someone," he said at last, "for whom nothing is impossible."
+
+

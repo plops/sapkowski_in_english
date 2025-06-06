@@ -91,3 +91,35 @@ Okay, here is a bullet-list summary for each of the newly translated chapters:
 *   The skipper drops him near Oława, on the way to the Strzelin road, allowing Reynevan to successfully evade his pursuers by taking to the water.
 
 
+Okay, here is a bullet-list summary for each of the newly translated chapters:
+
+**Chapter 6: A Beating, New Companions, and a Theological Debate**
+*   Reynevan encounters Dorota Faber (a prostitute) and Rabbi Hiram ben Eliezer, whose wagon has a broken axle-pin. He offers to help fix it in exchange for a ride to Strzelin.
+*   While attempting repairs, they are attacked by three bandits who intend to rob them and assault Dorota.
+*   The mysterious Urban Horn and his formidable black dog, Beelzebub, suddenly appear. Beelzebub viciously attacks the bandits, and Horn gives them a short time to flee before he unleashes the dog on their trail, implying a grim end for them.
+*   The group then meets Father Filip Granciszek, a portly priest. After some initial hesitation due to Dorota's profession and the Rabbi's faith, Granciszek agrees to take them all to Strzelin on his wagon.
+*   Urban Horn and Beelzebub join their traveling party.
+*   During the journey, Father Granciszek launches into a lengthy discourse on various heresies (Cathars, Waldensians, Lollards, Hussites, Flagellants, Beghards, etc.), often emphasizing their supposed connection to sexual depravity and perversion.
+*   Urban Horn challenges Granciszek's views, particularly defending the Beghards and Beguines, highlighting their charitable work and the injustice of their persecution.
+*   The discussion becomes heated, and Horn sharply warns Granciszek against using inquisitorial tactics or trying to trap him with questions, even making a veiled threat.
+*   Later, in a private conversation, Horn explains to Reynevan that what truly enrages the Church authorities is not theological error but calls for evangelical poverty, humility, and a renunciation of power and wealth.
+*   Reynevan, thinking of Nikoletta who helped him escape, asks Horn about prominent families near Brzeg who might have a young, fair-haired daughter, but Horn curtly advises him against such dangerous inquiries.
+
+**Chapter 7: Arrival in Strzelin, a Public Burning, and a Canon's Counsel**
+*   As they near Strzelin, the party is stopped by knights Kunad von Neudeck and Eustachy von Rochow, who are investigating the recent murder of Albrecht Bart of Karczyn.
+*   The knights reveal they are looking for suspects, including notorious mercenaries like Kunz Aulock, and also describe a "comely youth on a grey horse" (matching Reynevan's earlier appearance) accused of seducing a knight's wife and practicing sorcery. Urban Horn, who knew the murdered Bart, reacts to the news and skillfully diverts suspicion from their group.
+*   Reynevan realizes Horn knows his identity and was likely heading to Karczyn himself.
+*   They arrive in Strzelin on the eve of the Feast of the Assumption and witness a large crowd gathered for the public burning of three individuals: a Czech Hussite emissary, his local accomplice (a teacher named Antoni Nelke), and a woman, Elżbieta Ehrlichowa, accused of poisoning her husband. The execution is described, and Rabbi Hiram is physically sickened by the spectacle.
+*   At the local castle, Canon Otto Beess, provost of St. John the Baptist, presides over a meeting. He instructs local officials to:
+    *   Thoroughly clear the execution site to prevent the collection of remains as relics.
+    *   Maintain vigilance against Hussite heresy and Taborite emissaries.
+    *   Intensify the investigation into Albrecht Bart's murder, as the Chapter is not satisfied with blaming the Wycliffites who were just burned.
+*   Canon Beess then addresses petitioners:
+    *   He sternly reprimands Father Granciszek for not strictly following the curia's prescribed anti-Hussite propaganda in his sermons (e.g., tales of Hussites eating babies or growing tails), orders him to obey, and assigns him penance.
+    *   He receives Rabbi Hiram, who complains about incitement against Jews. Beess dismisses the idea of Church complicity but pressures the Rabbi to ensure the Brzeg Jewish community "voluntarily" contributes an additional 1000 guldens to the anti-Hussite crusade tax, framing it as being in their own interest due to Hussite atrocities against Jews.
+*   Finally, Canon Beess summons Reynevan for a private talk:
+    *   He reveals he knows all about Reynevan's affair with Adela von Stercza, having heard it from Duke Konrad Kantner in Wrocław.
+    *   He scolds Reynevan for his folly and the grave danger he is in from the Sterczas.
+    *   He orders Reynevan to completely forget Adela and to leave Silesia immediately, suggesting Hungary. He explicitly forbids Reynevan from going to his brother Peterlin in Balbinów or to Ziębice (where he inadvertently reveals Adela is currently staying).
+    *   Beess provides Reynevan with a plan for escape: he is to take a specially worded letter to the Carmelite prior in Strzegom. The prior will introduce him to a "man for whom nothing is impossible." Reynevan must use a specific code phrase with this man: "July eighteenth, year eighteen. Wrocław, New Town." This contact will ensure Reynevan's safety and facilitate his journey to Hungary.
+    *   Beess urges Reynevan to leave Strzelin at once, as too many people have already seen him there.
