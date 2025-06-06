@@ -62,7 +62,6 @@
 *   Kantner reveals his guest is the renowned knight, Zawisza Czarny of Garbów.
 
 
-Okay, here is a bullet-list summary for each of the newly translated chapters:
 
 **Chapter 4: Reynevan and Zawisza Czarny on the Road, and a Prophetic Encounter**
 *   Reynevan and Zawisza Czarny ride together; Zawisza suffers from pronounced flatulence due to cabbage.
@@ -123,3 +122,44 @@ Okay, here is a bullet-list summary for each of the newly translated chapters:
     *   He orders Reynevan to completely forget Adela and to leave Silesia immediately, suggesting Hungary. He explicitly forbids Reynevan from going to his brother Peterlin in Balbinów or to Ziębice (where he inadvertently reveals Adela is currently staying).
     *   Beess provides Reynevan with a plan for escape: he is to take a specially worded letter to the Carmelite prior in Strzegom. The prior will introduce him to a "man for whom nothing is impossible." Reynevan must use a specific code phrase with this man: "July eighteenth, year eighteen. Wrocław, New Town." This contact will ensure Reynevan's safety and facilitate his journey to Hungary.
     *   Beess urges Reynevan to leave Strzelin at once, as too many people have already seen him there.
+	
+
+
+**Chapter 8: Peterlin's Death and a Necromantic Ritual**
+*   Reynevan, happy and ignoring Canon Beess's instructions, heads towards Ziębice to find Adela, who he learns from a bribed priest (Father Felicjan) has escaped the Sterczas and is hiding in a Poor Clares' convent there.
+*   He plans to visit his brother Peterlin in Powojowice first, despite Beess's warnings.
+*   He arrives at Peterlin's fulling mill in Powojowice, which is known for its advanced (and smelly) dyeing and fulling techniques.
+*   He finds Peterlin's Flemish master dyer, Nicodemus Verbruggen, burning documents as per Peterlin's instructions in case of trouble. Verbruggen tells Reynevan that Peterlin has been murdered.
+*   Reynevan rushes to Peterlin's home in Balbinów and finds his brother laid out for burial.
+*   Peterlin's wife, Gryzelda, and her family (the Ders) are hostile, blaming Reynevan for Peterlin's death, believing the murderers were tracking Reynevan.
+*   The local priest confirms seeing four grim horsemen (matching the description of Kunz Aulock's band) near Wawolnica around the time of the murder.
+*   Gryzelda furiously orders Reynevan out of her house.
+*   Reynevan finds Urban Horn in Peterlin's stable, searching a hiding place. Horn admits the documents Horn sought were already burned.
+*   Horn refuses to answer Reynevan's questions about his connection to Peterlin's death or Kunz Aulock, but advises Reynevan to flee immediately and heed Canon Beess's advice. Beelzebub, Horn's dog, prevents Reynevan from forcing answers. Horn expresses sorrow for Peterlin's death and disappears.
+*   Reynevan, despite the risk, stays for Peterlin's burial in the Wawolnica church cemetery.
+*   That night, he returns to Peterlin's grave to perform a necromantic ritual to learn who killed his brother. He uses various magical components but fails to summon Peterlin's spirit.
+*   As a storm approaches, a host of monstrous and grotesque creatures appears in the cemetery.
+*   A girl named Eliza, gathering nettles, approaches Reynevan. She and other creatures (a pensive skeleton, a frog, a toothed invisible being) decide to help him "as one of them" (Toledo).
+*   Eliza pushes Reynevan onto the grave, and he experiences a chaotic vision: symbolic imagery, religious figures, past encounters (Hans Mein Igel, Gerda), and a premonition of the Narrenturm.
+*   Peterlin's spirit appears, wounds glowing. It gestures to forbid vengeance and points south, urging Reynevan to flee far away before the Narrenturm's dungeon claims him.
+*   Reynevan wakes at dawn on the grave, soaked by rain.
+*   **Epilogue-like scene in Wrocław:** Canon Otto Beess learns from his informant, cleric Gwibert Bancz, that Bishop Konrad has dismissed the investigation into Peterlin's (and Bart of Karczyn's) murder.
+*   The dismissal was based on a bizarre report by a mysterious black-clad knight who blamed either Jews (for ritual murder) or the devil. The knight demanded to be informed if anyone pursued the matter further, and the Bishop complied.
+*   Later, Gwibert Bancz is ambushed and brutally murdered in an alley by the same black-clad knight, who had earlier transformed from a wallcreeper. The knight mockingly kisses Bancz before stabbing him and slitting his throat, leaving his purse untouched in his mouth.
+*   Canon Beess, celebrating Mass, is troubled by these events and hopes Reynevan has escaped and is safe.
+*   **Final scene:** Kunz Aulock and his men gallop past a crossroads in the rain, not noticing Reynevan huddled under a penitential cross.
+
+**Chapter 9: Szarlej's Liberation and a Strzegom Brawl**
+*   Reynevan arrives at the Carmelite monastery in Strzegom after four days and presents Canon Beess's letter to the sickly Prior.
+*   The Prior reveals the monastery is a "house of demerits" (a prison for clergy). He burns Beess's letter but agrees to help, arranging for Reynevan to meet his contact in the church. He advises Reynevan and his companion to travel far and not return soon.
+*   The cellarer feeds Reynevan and explains that the demerits are mostly priests and monks who broke their vows (poverty, obedience, chastity – including "more serious matters"). Escape is pointless as their penance eventually clears their guilt.
+*   In the gloomy church, Reynevan meets his contact, a man in a confessional, who asks for the code phrase ("July eighteenth, year eighteen. Wrocław. New Town.") to confirm Reynevan's identity.
+*   The man, who offers several aliases before settling on "Szarlej," insists Reynevan kneel and "confess" (not for absolution, but as a sign of trust) before he'll help. Reynevan reluctantly agrees.
+*   Once outside the monastery, Szarlej erupts in wild celebration of his freedom, shocking Reynevan with his boisterous behaviour and profane curses directed at the Carmelites.
+*   Szarlej, despite his rough appearance (broken nose, strange green eyes), displays keen perception and leads Reynevan into Strzegom.
+*   They stop for beer, which Szarlej insists Reynevan pay for. Reynevan expresses doubts about their compatibility and Szarlej's usefulness.
+*   Three foppishly dressed, arrogant young French-speaking merchants accost Reynevan, insulting him and Silesians, and begin to beat him with their staffs.
+*   Reynevan shouts for Szarlej's help.
+*   Szarlej calmly intervenes. He effortlessly disarms and brutally beats the three merchants, one with his own staff, another with a devastating series of blows, and the third is left screaming with his own dagger in his thigh.
+*   Szarlej strips one of the beaten merchants of his fine doublet and purse, remarking on the importance of good clothes for dignity and the "money lying in the streets."
+*   The beer vendor warns them to flee, as the merchants are guests of the powerful Guncelin von Laasan. Szarlej, unconcerned, leads Reynevan away.

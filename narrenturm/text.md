@@ -2232,3 +2232,390 @@ Otto Beess was silent for a moment.
 "Someone," he said at last, "for whom nothing is impossible."
 
 
+**Chapter 8**
+in which, at first,
+it is beautiful.
+And later, not so much.
+
+Reynevan was cheerful and happy. Joy filled him, and everything around him delighted with its beauty. Beautiful was the valley of the Upper Oława, cutting its meanders into the green hills. Beautifully trotted the stocky bay colt, a gift from Canon Otto Beess, along the road running beside the river. Wonderfully sang the thrushes among the trees, even more wonderfully the larks among the meadows. Bees, beetles, and horseflies buzzed atmospherically. A zephyr blowing from the hills brought intoxicating scents—now jasmine, now bird cherry. Now shit—human settlements were evidently nearby.
+Reynevan was cheerful and happy. He had reasons.
+He had not managed, despite his efforts, to meet or bid farewell to his recent travel companions; he regretted this, especially the mysterious disappearance of Urban Horn, which disappointed him greatly. But it was precisely the memory of Horn that inspired him to act.
+In addition to the bay colt with a white blaze on its forehead, Canon Otto had also gifted him a purse for the road, and a much heavier one than the small pouch received a week earlier from Konrad Kantner. Weighing the purse in his hand and guessing from its weight no less than thirty Prague groschen inside, Reynevan was once again convinced of the superiority of the clerical estate over the knightly.
+That purse changed his fate.
+In one of the Strzelin inns, which he visited in search of Horn, he encountered the canon's factotum, Father Felicjan, greedily eating thick slices of fried sausage from a trencher and washing down the grease with heavy local beer. Reynevan knew at once what needed to be done. And he didn't even have to try too hard. The little priest licked his lips at the sight of the purse, and Reynevan handed it to him without a shadow of regret. And without counting how much was actually in it. Of course, he immediately obtained all the necessary information. Father Felicjan told him everything, indeed, he was ready to reveal a few additional secrets overheard in confession, but Reynevan politely refused, as the names of the penitents meant nothing to him, and their sins and peccadilloes did not interest him at all.
+He rode out of Strzelin in the morning. With practically not a penny to his name. But cheerful and happy.
+He was riding, however, by no means where the canon had told him to go. Not along the main road, westward, through the Oak Mountains, along the southern foot of Radunia, towards Świdnica and Strzegom. Quite contrary to the categorical prohibition, turning his back on the Radunia and Ślęża massifs, Reynevan rode south, up the Oława, along the road leading to Henryków and Ziębice.
+He straightened in the saddle, his nostrils catching more pleasant scents carried by the wind. The little birds sang, the sun warmed. Oh, how beautiful the whole world was. Reynevan felt like shouting with joy.
+Beautiful Adela, Gelfrad's wife, Father Felicjan had revealed to him in exchange for the purse weighing about thirty groschen, although seemingly cornered by her Stercz brothers-in-law in the Cistercian convent in Ligota, had managed to escape and throw off her pursuers. She had fled to Ziębice, to hide there in the Poor Clares' convent. True, the little priest recounted, licking his trencher, true, that Duke Jan of Ziębice, upon learning of this, had sternly ordered the nuns to hand over his vassal's wife. He had placed her under house arrest until the matter of the alleged adultery was clarified. But, here Father Felicjan let out a healthy, beery belch, although sin calls for punishment, the woman is safe in Ziębice, no longer threatened by the Sterczas' vigilante violence or harm. Duke Jan, here Father Felicjan blew his nose, had emphatically warned Apecz Stercza, indeed, had wagged his finger at him during an audience. No, the Sterczas would no longer be able to do any harm to their sister-in-law. Not in their power.
+Reynevan urged the bay through a meadow yellow with mullein and purple with lupine. He wanted to laugh and shout with joy. Adela, his Adela, had thumbed her nose at the Sterczas, made fools and buffoons of them, duped them. They thought they had cornered her in Ligota, and she—slip! And that was the last they saw of her. Oh, how Wittich must have fumed, how Morold must have raged and hurled helpless blasphemies, how Wolfher must have been apoplectic! And Adela, in a flash, into the night, on a grey mare, with her braid flying…
+Wait, he reflected. Adela doesn't wear a braid.
+I must control myself, he thought soberly, urging the colt on. Nikoletta, the amazon with a braid as fair as straw, means nothing to me after all. Yes, she saved me, drew off the pursuit, I'll repay her for that when the opportunity arises. Indeed, I'll fall at her feet. But I love Adela and only Adela, Adela is the mistress of my heart and my thoughts, I think only of Adela, I'm not at all preoccupied by that fair braid, nor that blue gaze from under the sable kolpak, nor those raspberry lips, nor those shapely thighs, embracing the flanks of the grey mare…
+I love Adela. Adela, from whom only about three miles separate me. If I let the horse gallop, I would be at the Ziębice gates before noon struck.
+Calmly, calmly. Without fervour. With a cool head. First, taking advantage of the fact that it's on the way, I must visit my brother. When I free Adela from ducal arrest in Ziębice, we will both flee to Bohemia or Hungary. I may never see Peterlin again. I must say goodbye to him, explain. Ask for a brotherly blessing.
+Canon Otto forbade it. Canon Otto ordered me to be like a wolf, never to take frequented paths. Canon Otto warned that the pursuit might be lurking near Peterlin's dwelling…
+But Reynevan had a way for that too.
+A tributary flowed into the Oława, a small river, more like a stream, hidden among the rushes, barely visible under a canopy of alders. Reynevan headed up this stream. He knew the way. A way that led not to Balbinów, where Peterlin lived, but to Powojowice, where he worked.
+The first sign that Powojowice was near came after some time from that very stream, along whose bank Reynevan was travelling. The stream first began to stink, at first lightly, then more strongly, then downright terribly. At the same time, the water changed colour, and radically so—to a dirty red. Reynevan rode out of the forest and from a distance already saw the cause—huge wooden drying racks, from which hung dyed pieces of linen and bolts of cloth. Red predominated—the daily production already signalled by the stream—but there were also blue, dark blue, and green fabrics.
+Reynevan knew these colours, now more associated with Piotr von Bielau than with the tinctures of the family crest. Besides, he had some part in these colours himself, having helped his brother obtain dyes. The deep, vivid red of the cloths and linens dyed at Peterlin's came from a secret composition of kermes, viper's bugloss, and madder. Peterlin obtained all shades of blue by mixing blueberry juice with woad, which, incidentally, he cultivated himself—one of the few in Silesia. Woad mixed with saffron and safflower produced a beautiful, intense green.
+The wind blew in his direction, bringing a stench that made his eyes water and the hairs in his nostrils curl. The dyeing components, bleaches, lyes, acids, potash, clays, ashes, and tallows were sufficiently foul-smelling; spoiled whey, in which—according to Flemish recipes—linen cloth was soaked in the final stage of the bleaching process, also smelled quite bad. None of this, however, compared to the odour of the basic agent used in Powojowice—stale human urine. The urine, which had been aged in large vats for about two weeks, was then used copiously in the fulling mill, for felting cloth. The effect was that the Powojowice fulling mill and its surroundings stank of piss like high heaven, and with favourable winds, the stench could reach as far as the Cistercian monastery in Henryków.
+Reynevan rode along the bank of the red and latrine-stinking stream. He could already hear the fulling mill—the incessant clatter of water-driven wheels, the clanking and creaking of gears, the grinding of transmissions; soon, a deep, earth-shaking thud overlaid everything—the beating of the fulling stocks, pounding the cloth in the troughs. Peterlin's fulling mill was modern; besides several traditional stations with stocks, it also had water-powered hammers that felted faster, better, and more evenly. And louder.
+Down by the stream, beyond further drying racks and a row of dye pits, he saw the buildings, sheds, and roofing of the fulling mill. As usual, a good twenty wagons of various sizes and constructions stood there. Reynevan knew that these were wagons of both suppliers—Peterlin imported large quantities of potash from Poland—and weavers, bringing cloth for felting. The reputation of Powojowice meant that weavers came here from all over the area, from Niemcza, Ziębice, Strzelin, Grodków, even Frankenstein. He saw master weavers, crowding around the fulling mill and supervising the work, he heard their shouts, audible even above the din of the machinery. As usual, they were arguing with the fullers about the way the cloth was arranged and turned in the stocks. He noticed among them several monks in white habits with black scapulars; this too was nothing new, the Henryków Cistercian monastery produced considerable quantities of cloth and was a regular customer of Peterlin's.
+The one Reynevan did not see, however, was Peterlin himself. His brother, who was usually very visible in Powojowice, was accustomed to riding around the entire area. On horseback, to distinguish himself. Piotr von Bielau was, after all, a knight.
+What was stranger, nowhere could the thin and tall figure of Nicodemus Verbruggen be seen, the Fleming from Ghent, the great master of fulling and dyeing.
+Remembering the canon's warnings in time, Reynevan rode into the buildings stealthily, behind the wagons of other arriving customers. He pulled his hat down over his nose, hunched in the saddle. Without attracting anyone's attention, he rode up to Peterlin's house.
+The usually bustling and crowded building seemed completely empty. No one reacted to his shout, no one was interested in the slamming of the door. There wasn't a living soul in the long hallway or in the servants' quarters. He entered the main room.
+Master Nicodemus Verbruggen, grey-haired, shorn like a peasant but dressed like a gentleman, sat on the floor in front of the hearth. The chimney roared with fire. The Fleming was tearing and throwing sheets of paper into the flames. He was almost finished. He had only a few sheets left on his lap, while a whole pile was blackening and curling in the fire.
+"Master Verbruggen!"
+"Jesus Christus…" The Fleming raised his head, threw another sheet into the fire. "Jesus Christus, young Master Reinmar… What a misfortune, young master… What a terrible misfortune…"
+"What misfortune, master? Where is my brother? What are you burning here?"
+"Mynheer Peter ordered it. He said, if anything should happen, take it from the hiding place, burn it, and quickly. Thus he said: 'If anything, Nicodemus, God forbid, should happen, burn it quickly. And the fulling mill must keep working.' Thus said Mynheer Peter. En het woord is vlees geworden…"
+"Master Verbruggen…" Reynevan felt a terrible premonition raise the hairs on the back of his neck. "Master Verbruggen, speak! What are these documents? And what word became flesh?"
+The Fleming drew his head into his shoulders, threw the last sheet into the hearth. Reynevan rushed over, burning his hand as he pulled it from the fire, waving it to extinguish the flames. Partially.
+"Speak!"
+"They killed him," Nicodemus Verbruggen said hollowly. Reynevan saw a tear meandering down the cheek bristling with grey stubble. "Good Mynheer Peter is dead. They killed him. Murdered him. Young Master Reinmar… Such a misfortune, Jesus Christus, such a misfortune…"
+The door slammed. The Fleming looked around and realized that no one had heard his last words.
+
+***
+
+Peterlin's face was white. And porous. Like cheese. In the corner of his mouth, despite washing, traces of clotted blood remained.
+The elder von Bielau lay on a bier set in the middle of the common room, amidst twelve burning candles. Two Hungarian gold ducats had been placed on his eyes, and spruce twigs were tucked under his head, their scent, mixing with the smell of melting wax, filling the common room with a sickening, repulsive, funereal stench of death.
+The bier was covered with red cloth. Dyed with kermes in his own dye-works, Reynevan thought absurdly, feeling tears welling in his eyes.
+"How…" he choked out from his constricted throat. "How… could this… have happened?"
+Gryzelda z Derów, Peterlin's wife, looked at him. Her face was red and swollen from crying, she pressed both sobbing children, Tomaszek and Sybilla, to her skirts. But her gaze was unkind, downright malevolent. Peterlin's father-in-law and brother-in-law, old Walpot Der and his blocky son Krystian, also looked at him none too kindly.
+No one, neither Gryzelda nor the Ders, deigned to answer his question. But Reynevan had no intention of giving up.
+"What happened? Will someone finally tell me?"
+"Some men killed him," muttered Peterlin's neighbour, Gunter von Bischofsheim.
+"God," added the parish priest from Wawolnica, Reynevan didn't remember his name, "God will punish them for this."
+"They stabbed him with a sword," said Matjas Wirt, a local leaseholder, hoarsely. "The horse came back riderless. At high noon."
+"At high noon," repeated the Wawolnica priest, folding his hands. "Ab incursu et daemone meridiano libera nos, Domine…"
+"The horse came back," Wirt repeated, slightly thrown off by the prayerful interjection, "with a bloodied saddle and caparison. So we started searching and found him. In the forest, just before Balbinów… Right by the road. Master Piotr must have been riding from Powojowice. The ground there was torn up by many hooves, it's clear they surrounded him in a group…"
+"Who?"
+"We don't know," Matjas Wirt shrugged. "Robbers, probably…"
+"Robbers? The robbers didn't take the horse? Impossible."
+"And who knows what's possible and what's not," von Bischofsheim shrugged. "Master Der's men and mine are chasing through the forests, maybe they'll catch someone. And we've informed the starosta. The starosta's men will come, they'll investigate, find out, cui bono. Meaning, who had reason for the murder and who benefited from it."
+"Perhaps," Walpot von Der spoke venomously, "some moneylender, angry about an unpaid usurious debt? Perhaps some fellow dyer, glad to be rid of a competitor? Perhaps some client, cheated out of three measly groschen? That's how it is, that's how it ends, when one forgets one's birth and consorts with commoners. Plays at being a merchant. He who lies down with dogs, gets up with fleas. Ptooey! I gave you to a knight, daughter, and now you're a widow to a…"
+He fell silent suddenly, and Reynevan realized it was under his gaze. Despair and rage fought fiercely within him, first one gaining the upper hand, then the other. He controlled himself with the last of his willpower, but his hands trembled. His voice too.
+"Were there not seen nearby," he choked out, "four horsemen? Armed? One tall, moustached, in a studded jacket… One small, with pockmarks on his face…"
+"There were such men," the priest spoke unexpectedly. "Yesterday, in Wawolnica, by the church. The Angelus was just ringing… Oh, they looked like grim cutthroats. Four of them. Truly, the horsemen of the Apocalypse…"
+"I knew it!" Gryzelda shrieked in a voice hoarse and raw from crying, fixing Reynevan with a basilisk-like stare. "I knew it, the moment I saw you, you scoundrel! It's because of you! Because of your sins and deeds!"
+"The other von Bielau," Walpot Der mockingly emphasized the title. "Also a nobleman. This one, for a change, deals in leeches and enemas."
+"Scoundrel, good-for-nothing!" Gryzelda screamed louder and louder. "Whoever murdered these children's father, came here following your trail! Misfortune only comes through you! You always brought your brother nothing but shame and sorrow! What do you want here? Does the inheritance already smell good to you, you vulture? Get out! Get out of my house!"
+Reynevan, with great effort, controlled the trembling of his hands. But he could not utter a sound. He was seething internally with passion and fury, so much so that he was shaken by the urge to scream in all the Ders' faces what he thought of their entire family, who could play lords only thanks to the money Peterlin earned in the fulling mill. But he restrained himself. Peterlin was dead. He lay murdered, with Hungarian ducats on his eyes, in the common room of his own small keep, amidst smoking candles, on a bier, on red cloth.
+Peterlin was dead. Quarrels and bickering were unseemly, repulsive, by his corpse; the very thought of it was loathsome. Reynevan was also afraid that as soon as he opened his mouth, he would burst into sobs.
+He left without a word.
+Mourning and gloom hung over the entire Balbinów keep. It was empty and quiet; the servants had hidden somewhere, aware that it was not good to get under the feet of mourners lost in grief. Even the dogs weren't barking. No dogs were visible at all. Except…
+He rubbed his eyes, still filled with tears. The black mastiff sitting between the stable and the bathhouse was no apparition. It had no intention of disappearing.
+Reynevan quickly crossed the courtyard, entered the building from the side of the wagon shed. He walked along the trough for the cows—the building was both a cowshed and a pigsty—and reached the horse stalls. In the corner of the stall usually occupied by Peterlin's horse, picking at the clay of the threshing floor with a knife, knelt Urban Horn amidst cleared straw.
+"What you are looking for is not here," Reynevan said, surprised at his own calmness. Horn, surprisingly, did not seem at all taken aback. He looked him in the eyes, without getting up.
+"What you are looking for was hidden in another cache. But it's gone now. It burned."
+"Indeed?"
+"Indeed." Reynevan pulled a charred fragment of a sheet from his pocket, threw it carelessly onto the clay floor. Horn still didn't get up.
+"Who killed Peterlin?" Reynevan took a step. "Kunz Aulock and his band on Stercz's orders? Did they kill Master Bart of Karczyn too? What do you have to do with this, Horn? Why are you here, in Balbinów, barely half a day after my brother's death? How do you know his hiding place? Why are you looking for documents in it that burned in Powojowice? And what were those documents?"
+"Flee from here, Reinmar," Urban Horn said, drawing out the words. "Flee from here, if you value your life. Don't even wait for your brother's burial."
+"First, you will answer my questions. Start with the most important one: what connects you to this murder? What connects you to Kunz Aulock? Don't try to lie!"
+"I will not try," Horn replied, not averting his gaze, "either to lie or to answer. For your own good, by the way. It may surprise you, but that is the truth."
+"I will force you to answer." Reynevan took a step and drew his dagger. "I will force you, Horn. If necessary, by force."
+That Horn whistled was indicated only by the pursing of his lips; the sound was inaudible. But only to Reynevan. For in the next moment, something struck him in the chest with terrible force. He fell onto the clay floor. Crushed by the weight, he opened his eyes, only to see a full set of the black mastiff Beelzebub's fangs right in front of his nose. The dog's saliva dripped onto his face, the stench made him nauseous. A sinister, guttural growl paralyzed him with fear. Urban Horn appeared in his field of vision, tucking the charred paper into his tunic.
+"You can't force me to do anything, boy." Horn adjusted the chaperon on his head. "But you will listen to what I tell you out of goodwill. Indeed, out of kindness. Beelzebub, don't move."
+Beelzebub didn't move. Though it was clear he had a great urge to.
+"Out of kindness," Horn repeated, "I advise you then, Reinmar: flee. Disappear. Listen to Canon Beess's advice. For I'll wager my head that he gave you advice, gave you instructions on how to extricate yourself from the trouble you've fallen into. One does not disregard, boy, the instructions and orders of men like Canon Beess. Beelzebub, don't move."
+"About your brother," Urban Horn said, "I am exceedingly sorry. You don't know how much. Farewell. And beware."
+When Reynevan opened his eyes, squeezed shut against Beelzebub's muzzle almost touching his face, neither the dog nor Horn was in the barn.
+
+***
+
+Crouching on his brother's grave, Reynevan shrank and trembled with fear. He sprinkled salt mixed with hazel ash around himself and, in a trembling voice, repeated the incantation. Believing less and less in its effectiveness.
+Wirfe saltze, wirfe saltze
+Non timebis a timore nocturno
+Neither moru, nor guest from the darkness
+Nor demon
+Wirfe saltze, wirfe saltze…
+Monsters swirled and clamoured in the gloom.
+Though aware of the risk and the time lost, Reynevan waited for his brother's burial. Despite the efforts of his sister-in-law and her family, he did not allow himself to be discouraged from keeping vigil by the corpse, he took part in the exequies, listened to the Mass. He was there when, in the presence of the sobbing Gryzelda, the parish priest, and a small funeral procession, Peterlin was buried in a grave in the cemetery behind the ancient little church of Wawolnica.
+Only then did he leave. That is to say—he pretended to leave.
+When darkness fell, Reynevan hurried to the cemetery. He arranged his magical instruments on the fresh grave, assembled—surprisingly—without any particular trouble. The oldest part of the Wawolnica necropolis adjoined a ravine washed out by a small river; the ground had subsided there somewhat, so access to the ancient graves presented no difficulty. Thus, Reynevan's magical arsenal even included a coffin nail and a corpse's finger.
+However, neither the corpse's finger, nor the monkshood, sage, and chrysanthemum picked from under the cemetery fence, nor the incantations whispered over the ideogram carved on the grave with a crooked coffin nail, helped. Peterlin's spirit, contrary to the assurances of magical books, did not rise above the grave in ethereal form. It did not speak. It gave no sign.
+If I had my books here, Reynevan thought, disappointed and discouraged by numerous attempts. If I had the Lemegeton or the Necronomicon… A Venetian crystal… A bit of mandrake… If I had access to an alembic and could distil an elixir… If I…
+Unfortunately. The grimoires, crystal, mandrake, and alembic were far away, in Oleśnica. In the Augustinian monastery. Or, more likely, in the possession of the Inquisition.
+A storm was rapidly approaching from behind the horizon. The rumbles of thunder accompanying the flashes of lightning in the sky grew louder. The wind died down completely, the air became dead and heavy as a shroud. It must have been close to midnight.
+And then it began.
+Another lightning flash illuminated the church. Reynevan saw with terror that the entire bell tower was swarming with spider-like creatures, crawling up and down. Before his eyes, several cemetery crosses moved and tilted, one of the further graves bulged strongly. From the darkness over the ravine came the crunch of breaking coffin boards, then loud smacking sounds. And then howling.
+As he sprinkled salt around himself, his hands flew as if in an attack of fever, and his lips could barely be forced to babble the formula of the spell.
+The greatest activity was over the ravine, in the oldest, alder-overgrown part of the cemetery. Fortunately, Reynevan did not see what was happening there; even the lightning flashes revealed nothing from the darkness beyond indistinct shapes and silhouettes. However, his hearing provided strong sensations—the company bustling among the old graves stomped, roared, howled, whistled, cursed, and on top of that, clacked and gnashed its teeth.
+Wirfe saltze, wirfe saltze…
+A woman laughed thinly and spasmodically. Some baritone maliciously parodied the liturgy of the Mass, accompanied by the wild cackling of the others. Someone was beating a drum.
+A skeleton emerged from the darkness. It spun around a bit, then sat on a grave and sat there, holding its bowed skull in its bony hands. After a moment, a hairy creature with huge feet sat down next to it. The creature began to scratch these feet vigorously, groaning and moaning as it did so. The pensive skeleton paid it no attention.
+A toadstool on spider legs passed by, followed shortly by something that looked exactly like a pelican, but instead of feathers it had scales, and its beak was full of pointed fangs.
+A large frog jumped onto a neighbouring grave.
+And there was something else there. Something that—Reynevan would have sworn—was constantly watching him, never taking its eyes off him. Something completely hidden in the darkness, invisible even in the flash of lightning. But a careful gaze could discern eyes glowing like rotten wood. And long teeth.
+"Wirfe saltze," he sprinkled the rapidly dwindling salt before him. "Wirfe saltze…"
+Suddenly, a bright, slowly moving patch caught his eye. He followed it, waiting for the next lightning flash. When it flashed, he saw to his astonishment a girl in a white shift, picking and placing large, spreading cemetery nettles into a basket. The girl saw him too. After a moment's hesitation, she approached, set down her basket. She paid not the slightest attention either to the pensive skeleton or to the hairy creature, picking between the toes of its large feet.
+"For pleasure?" she asked. "Or out of duty?"
+"Err… Out of duty…" he overcame his fear, understood what she was asking. "Brother… My brother was killed. He lies here…"
+"Aha," she brushed her hair from her forehead. "And I, you see, am gathering nettles here."
+"To sew shirts," he sighed after a moment, guessing. "For brothers enchanted into swans?"
+She was silent for a long time.
+"You are strange," she said at last. "The nettles are for cloth, of course. For shirts. But not for brothers. I have no brothers. And if I had, I would never let them wear these shirts."
+She laughed gutturally, seeing his expression.
+"Why are you even talking to him, Eliza?" spoke the toothed thing, invisible in the darkness. "Isn't it a waste of effort? Rain will fall before morning, wash away his salt. Then his head will be bitten off."
+"That's not right," said the pensive skeleton, without raising its skull. "That's not right."
+"Of course not," agreed the girl called Eliza. "After all, this is Toledo. One of us. And there are few of us left."
+"He wanted to talk to the dead man," declared a dwarf with teeth protruding from under his upper lip, emerging as if from under the ground. He was plump as a pumpkin, his bare belly shining from under a too-short, frayed waistcoat.
+"He wanted to talk to the dead man," he repeated. "To his brother, who lies buried here. He wanted answers to questions. But he didn't get them."
+"Then it is fitting to help," said Eliza.
+"Sure," said the skeleton.
+"Sure, brekek," said the frog.
+Lightning flashed, thunder rolled. The wind rose, rustled in the weeds, swirled and dusted with dry leaves. Eliza, without hesitation, stepped over the scattered salt, pushed Reynevan hard in the chest. He fell onto the grave, hit the back of his head on the cross. Light flashed in his eyes, then it grew dark, then it flashed again, but this time it was lightning. The earth beneath his back trembled. And spun.
+Shadows danced around, dancing silhouettes, two circles, alternately swirling around Peterlin's grave.
+"Barbelo, Hecate, Holda!"
+"Magna Mater!"
+"Eia!"
+The ground beneath him swayed and tilted so steeply that Reynevan violently spread his arms to keep from sliding off and falling. His legs searched in vain for support. Yet he did not fall. Sounds, singing, invaded his ears. Visions pressed upon his eyes.
+Veni, veni, venias
+ne me mori, ne me mori facias!
+Hyrca! Hyrca! Nazaza!
+Trillirivos! Trillirivos! Trillirivos!
+Adsumus, says Percival, kneeling before the Grail. Adsumus, repeats Moses, bent under the weight of the stone tablets brought down from Mount Sinai. Adsumus, says Jesus, falling under the cross. Adsumus, repeat the knights gathered at the table in one voice. Adsumus! Adsumus! We are here, Lord, gathered in Your name.
+An echo runs through the castle like rumbling thunder, like the sound of a distant battle, like the crash of a battering ram against the castle gate. And slowly fades among the dark corridors.
+Viator, the Wanderer, will come, says a young girl with a foxy face and dark-ringed eyes, adorned with a wreath of verbena and clover. Someone leaves, someone comes. Apage! Flumen immundissimum, draco maleficus… Do not ask the name, it is mysterious. From that which devours came forth that which is consumed, and from the strong came forth sweetness. And who is to blame? He who speaks the truth.
+They will be gathered, imprisoned in a dungeon; they will be locked in prison, and after many years they will be punished. Beware the Wallcreeper, beware the bats, beware the demon that destroys at noon, and beware also him who walks in darkness. Love, says Hans Mein Igel, love will save your life. Do you regret it, asks the girl smelling of calamus and mint. Do you regret it? The girl is naked, naked with innocent nakedness, nuditas virtualis. She is barely visible in the darkness. But so close that one feels her warmth.
+Sun, serpent, and fish. Serpent, fish, sun inscribed in a triangle. The Narrenturm collapses, turris fulgurata, the tower struck by lightning, crumbles into ruins. The poor fool falls from it, flies down, towards destruction. I am that fool, runs through Reynevan's head, fool and madman, it is I who fall, fly into the abyss, to the bottom.
+A man, all in flames, running screaming through shallow snow. A church on fire.
+He shook his head to dispel the visions. And then, in the flash of another lightning bolt, he saw Peterlin.
+The apparition, motionless as a statue, suddenly shone with an unnatural light. Reynevan saw that this light, like sunlight through the hole-ridden walls of a hut, emanated from numerous wounds—in his chest, neck, and abdomen.
+"God, Peterlin…" he moaned. "How terribly they… They will pay me for this, I swear! I will avenge you… I will avenge you, little brother… I swear it…"
+The vision made a violent gesture. Clearly negative, forbidding. Yes, it was Peterlin, no one but his father gestured like that when he denied something or forbade something, when he scolded little Reynevan for mischief or mad ideas.
+"Peterlin… Little brother…"
+The same gesture, even sharper, more violent, more emphatic. Leaving no doubt.
+A hand, pointing south.
+"Flee," spoke the vision in the voice of Eliza of the nettles. "Flee, little one. Far away. As far as possible. Beyond the forests. Before the dungeon of Narrenturm consumes you. Flee, running through the mountains, leaping over the hills, saliens in montibus, transiliens colles."
+The earth spun furiously. And everything ended. It fell into darkness.
+
+***
+
+At dawn, the rain woke him. He lay on his brother's grave on his back, motionless and numb, and the drops splattered on his face.
+
+***
+
+"Allow me, young man," said Otto Beess, canon of Saint John the Baptist, provost of the Wrocław chapter. "Allow me to briefly recapitulate what you have told me here, which has made me cease to believe my own ears. So, Konrad, Bishop of Wrocław, having the opportunity to get at the arses of the Sterczas, who sincerely hate him and whom he hates, does nothing. Having almost irrefutable proof that the Sterczas are involved in a family feud and murder, Bishop Konrad takes no action in the matter. Is that so?"
+"Exactly so," replied Gwibert Bancz, secretary to the Bishop of Wrocław, a young cleric with a handsome face, clear complexion, and gentle, velvety eyes. "It is decided. No steps against the Stercz family. Not even reprimands. Not even interrogations. The Bishop decided this in the presence of His Reverence Suffragan Tylman. And in the presence of that knight to whom the investigation was entrusted. The one who arrived in Wrocław this morning."
+"The knight," repeated the canon, gazing at a painting depicting the martyrdom of Saint Bartholomew, the only decoration, apart from a shelf with candlesticks and a crucifix, on the bare walls of the room. "The knight who arrived in Wrocław this morning."
+Gwibert Bancz swallowed. The situation, to put it mildly, was not the most convenient for him. It never had been. And there was no indication that it might ever change.
+"Precisely," Otto Beess drummed his fingers on the table, seemingly focused exclusively on the saint being tortured by the Armenians. "Precisely. What knight is this, son? Name? Family? Coat of arms?"
+"Ahem…" coughed the cleric. "Neither name was mentioned, nor family… Nor did he bear a coat of arms, being dressed entirely in black. But I have seen him with the bishop before."
+"What does he look like then? Don't make me drag it out of you."
+"Not old. Tall, slim… Black hair to his shoulders. Long nose, like a beak… And his gaze is somewhat… bird-like… Piercing… In summa, he could hardly be called handsome… But masculine…"
+Gwibert Bancz broke off suddenly. The canon did not turn his head, did not even stop drumming his fingers. He knew the cleric's secret erotic preferences. Knowing them had allowed him to make him his informant.
+"Continue."
+"So it was this very knightly visitor, who, incidentally, showed neither humility nor even the slightest embarrassment in the bishop's presence, who reported on the investigation into the murders of Masters Bart of Karczyn and Piotr von Bielau. And this report was such that His Reverence the Suffragan could not contain himself at a certain point and began to laugh…"
+Otto Beess raised his eyebrows without a word.
+"The said knight declared that the Jews were to blame, because in the vicinity of both crime scenes, one could detect the foetor judaica, the stench peculiar to Jews… To get rid of this odour, the Jews, as everyone knows, drink Christian blood. The murder, the visitor continued, paying no heed to the fact that the Reverend Tylman was laughing himself silly, thus bears the hallmarks of a ritual killing, and the culprits should be sought in the nearest kahals, especially the one in Brzeg, because the rabbi from Brzeg was seen in the vicinity of Strzelin, and in the company of young Reinmar de Bielau… The one Your Reverence knows of…"
+"I know. Continue."
+"At such a dictum, the Reverend Suffragan Tylman declared that it was a fairy tale, that both murdered men had fallen to swords. That a man like Albrecht von Bart was a strongman and a renowned fencer. That no rabbi, from Brzeg or anywhere else, could have stood up to Master Bart even if they had fought with Talmuds. And again he began to laugh to tears."
+"And the knight?"
+"He said that if the Jews did not kill the good Masters Bart and Piotr de Bielau, then the devil must have done it. Which amounts to the same thing."
+"What did Bishop Konrad say to that?"
+"His Eminence," the cleric cleared his throat, "gazed thunderously at the Reverend Tylman, clearly displeased with his merriment. And he spoke at once. Very sternly, seriously, and officially, and ordered me to write it down…"
+"He dismissed the investigation," the canon anticipated, pronouncing the words very slowly. "He simply dismissed the investigation."
+"As if you were there. And the Reverend Suffragan Tylman sat and said not a word, but he had a strange expression. Bishop Konrad noticed this and said, angrily, that right was on his side, history would attest to it, and that it was ad maiorem Dei gloriam."
+"He said that?"
+"In those very words. Therefore, Reverend Father, do not go to the bishop in this matter. I assure you, you will achieve nothing. Moreover…"
+"Moreover, what?"
+"The said visitor told the bishop that if anyone invoked, petitioned, or demanded further investigation into the matters of both crimes, he demanded to be informed of it."
+"He demands," Otto Beess repeated. "And what did the bishop say to that?"
+"He nodded his head."
+"He nodded his head," the canon repeated, also nodding. "Well, well. Konrad, Piast of Oleśnica. Nodded his head."
+"He nodded, Reverend Father."
+Otto Beess looked again at the painting, at the tortured Bartholomew, from whom the Armenians were tearing long strips of skin with huge pincers. If one were to believe the Golden Legend of Jacobus da Voragine, he thought, a wondrous scent of roses hung over the place of martyrdom. Right. Agony stinks. A stench, a reek, an odour hangs over all places of execution and torment. Also over Golgotha. There too, I'll wager my head, there were no roses. There was, how aptly, foetor judaica.
+"Please, boy. Take it."
+The cleric, as usual, first reached for the purse, then abruptly withdrew his hand, as if the canon were handing him a scorpion.
+"Reverend Father…" he stammered. "But I don't… Not for paltry coin… Only because…"
+"Take it, son, take it," the canon interrupted with a patronizing smile. "I have told you on other occasions that an informant must take payment. Those who inform for free are despised above all. For an idea. Out of fear. Out of anger and envy. I have told you before: Judas deserved contempt more for betraying cheaply than for the betrayal itself."
+
+***
+
+The afternoon was fair and warm, a pleasant change after several days of sleet. The tower of St. Mary Magdalene's Church gleamed in the sun, as did the roofs of the little townhouses. Gwibert Bancz stretched. He had grown cold at the canon's. The room was shaded, a chill emanated from the walls.
+Besides his residence in the chapter house on Ostrów Tumski, Provost Otto Beess had a house in Wrocław on Szewska Street, near the market square; there he was accustomed to receiving those whose visits were not to be spoken of loudly, including, of course, Gwibert Bancz. Gwibert Bancz therefore decided to take advantage of the opportunity. He did not want to return to Ostrów; it was unlikely that the bishop would need him before vespers. And from Szewska it was three steps to a certain cellar known to the cleric behind Kurzy Targ. In the cellar, one could spend part of the money received from the canon. Gwibert Bancz devoutly believed that by getting rid of money, he was getting rid of sin.
+Nibbling on a pretzel bought at a passing stall, he turned into a narrow alley to shorten his way. It was quiet and deserted here, so deserted that rats, astonished by the appearance of a human, scurried from under his feet.
+He heard the rustle of feathers and the flapping of wings. He looked around and saw a large wallcreeper, clumsily alighting on the frieze above a bricked-up window. He dropped the pretzel, recoiled abruptly, jumped back.
+Before his eyes, the bird slid down the wall, its claws scrabbling. It blurred. Grew. And changed shape. Bancz wanted to scream, but could not force a sound from his constricted throat.
+Where the wallcreeper had been a moment before, now stood the knight known to the cleric. Tall, slim, black-haired, dressed in black, with a piercing bird-like gaze.
+Bancz again opened his mouth and again produced nothing but a quiet croak. The Wallcreeper Knight approached sinuously. Being very close, he smiled, winked, and pursed his lips, blowing the cleric a very erotic kiss.
+Before the cleric understood what was happening, he caught the gleam of a blade, was struck in the stomach, blood gushed onto his thighs. He was struck a second time, in the side, the knife crunched on his ribs. He hit his back against the wall, a third blow almost pinned him to it.
+Now he could scream and would have screamed, but he didn't have time.
+The Wallcreeper lunged and with a wide slash slit his throat.
+
+***
+
+Beggars found the crumpled corpse lying in a black puddle. Before the town guard arrived, merchants and market women from Kurzy Targ also ran up.
+A sense of dread hung over the crime scene. A terrible, suffocating, gut-wrenching dread. A dreadful dread.
+So dreadful that until the arrival of the guard, no one dared to steal the purse of money protruding from the murdered man's knife-slashed mouth.
+
+***
+
+"Gloria in excelsis Deo," intoned Canon Otto Beess, lowering his clasped hands and bowing his head before the altar. "Et in terra pax hominibus bonae voluntatis…"
+The deacons stood at his sides, joining in the singing in hushed voices. Otto Beess, provost of the Wrocław chapter, celebrating Mass, continued. He continued mechanically, routinely. His thoughts were elsewhere.
+Laudamus te, benedicimus te, adoramus te,
+glorificamus te, gratias agimus tibi…
+They murdered the cleric Gwibert Bancz. In broad daylight, in the centre of Wrocław. And Bishop Konrad, who dismissed the investigation into the murder of Peterlin von Bielau, will probably dismiss the investigation into his secretary's murder as well. I don't know what's happening here. But I must ensure my own safety. Never, under any circumstances, give a pretext or opportunity. And not be taken by surprise.
+The singing rose to the high vault of the Wrocław cathedral.
+Agnus Dei, Filius Patris, qui tollis peccata mundi,
+miserere nobis;
+Qui tollis peccata mundi, suscipe deprecationem
+nostram…
+Otto Beess knelt before the altar.
+I hope, he thought, making the sign of the cross, I hope Reynevan made it… That he is safe now. I very much hope…
+"Miserere nobis…"
+The Mass continued.
+
+***
+
+Four horsemen galloped through the crossroads, past a stone cross, one of the many memorials to crime and remorse in Silesia. The wind lashed, the rain cut, mud splattered from under hooves. Kunz Aulock, known as Kyrieleison, cursed, wiping water from his face with a wet gauntlet. Stork of Gorgowice echoed him from under his dripping hood even more profanely. Walter de Barby and Sybek of Kobylagłowa didn't even feel like cursing anymore. At a gallop, they thought, just to get under some roof, to some inn, to warmth, dryness, and mulled beer.
+Mud splashed from under the hooves, muddying the already mud-caked figure huddled under the cross and covered with a cloak. None of the riders paid any attention to the figure.
+Reynevan didn't even raise his head.
+
+**Chapter 9**
+in which Szarlej appears.
+
+The prior of the Strzegom Carmelite monastery was as thin as a skeleton; his complexion, dry skin, imperfectly shaven stubble, and long nose made him resemble a plucked heron. When he looked at Reynevan, he squinted; when he returned to reading Otto Beess's letter, he brought the letter to within two inches of his nose. His bony, cyanotic hands trembled incessantly, and his mouth twisted in pain from time to time. The prior was by no means an old man. It was an illness that Reynevan knew and had seen, an illness that consumed like leprosy—only invisibly, from within. An illness against which all medicines and herbs were powerless, for which only the strongest magic was effective. What good was it, anyway, that it was effective. Even if someone knew how to treat it, they wouldn't, because the times were such that a cured patient could denounce the healer.
+The prior's cough brought him out of his reverie.
+"So, it was only for this very thing," he raised the Wrocław canon's letter, "that you waited for my return, young man? For four whole days? Knowing that Father Guardian has full powers during my absence?"
+Reynevan confined himself to a nod. Citing the condition of handing the letter personally to the prior was so trivially obvious as to be unworthy of mention. As for the four days spent in the village near Strzegom, they too were not worth mentioning—they had passed without him noticing. As if in a dream. Since the tragedy in Balbinów, Reynevan had still been as if in a dream. Numb, distracted, and semi-conscious.
+"You waited," the prior stated the fact, "to deliver the letter into my own hands. And you know what, young man? It is very good that you waited."
+Reynevan did not comment this time either. The prior returned to the letter, holding it almost to his nose.
+"Yeees," he finally said drawlingly, raising his eyes and squinting. "I knew the day would come when the venerable canon would remind me of my debt. And demand repayment. With usurious interest. Which, incidentally, the Church forbids charging. For the Gospel of Luke says: lend, expecting nothing in return. Do you believe, young man, without reservation, in what the Church, our mother, bids us believe?"
+"Yes, Reverend Father."
+"A praiseworthy virtue. Especially in these times. Especially in a place like this. Do you know where you are? Do you know what this place is? Besides a monastery?"
+"You don't know," the prior guessed from his silence. "Or you skilfully pretend not to know. This is, you see, a house of demerits. What a house of demerits is, you probably don't know either, or you will pretend with equal skill that you don't know. So I will tell you: it is a prison."
+The prior fell silent, clasped his hands, looked at his interlocutor searchingly. Reynevan, it goes without saying, had long since guessed what it was all about, but he did not betray himself. He did not want to spoil the Carmelite's pleasure, which this way of conducting conversation evidently afforded him.
+"Do you know," the monk resumed after a moment, "what His Reverence the Canon allows himself to ask of me in this letter?"
+"No, Reverend Father."
+"This ignorance somewhat excuses you. And since I know, nothing can excuse me. Thus, if I refuse the request, my action will be justified. What do you say to that? Is my logic not equal to Aristotle's?"
+Reynevan did not answer. The prior was silent. For a very long time. Then he lit the canon's letter from a candle, turned it so that the flame flared up, and threw it onto the floor. Reynevan watched as the paper curled, blackened, and crumbled. Here turn to ash my hopes, he thought. Untimely, moreover, senseless and futile. Perhaps it is better then, that it happened as it did.
+The prior stood up.
+"Go to the cellarer," he said briefly and dryly. "Let him feed you and give you drink. Then you will betake yourself to our church. There you will meet him with whom you should. Orders will be given, you will be able to leave the monastery without hindrance. Canon Beess emphasized in his letter that you are both embarking on a long journey. I will add from myself that it is very good that it is a long one. It would be, I add, a great mistake to travel too close. And to return too soon."
+"Thank you, Your Reverence…"
+"Do not thank me. And if either of you should have the thought of asking me for a blessing for the road before departing, let him abandon that thought."
+
+***
+
+The victuals at the Strzegom Carmelites were, in truth, truly prison-like. Reynevan, however, was still too dejected and apathetic to taste them. Besides, to be frank, he was too hungry to grimace at salted herring, unseasoned porridge, and beer that differed from water only in colour, and even then, not significantly. Or perhaps it was a fast day? He didn't remember.
+So he ate briskly and lively, which the elderly cellarer watched with evident satisfaction, undoubtedly accustomed to much less enthusiasm from those he hosted. Reynevan had barely dealt with the small jug when the smiling monk offered him a second, taken straight from the barrel—Reynevan decided to take advantage of this act of friendship.
+"A veritable fortress, your monastery," he said with his mouth full. "And no wonder, I know what it serves for. But surely you have no armed guard. Has no one ever escaped from those who do penance here?"
+"Oh, son, son," the cellarer shook his head at his naive obtuseness. "Escape? And for what? Do not forget who does penance here. For each of them, penance will end someday. And though no one here does penance pro nihilo, the end of penance erases the guilt. Nullum crimen, everything returns to normal. And an escapee? He would be an outlaw to the end of his days."
+"I understand."
+"That's good, because I'm not allowed to talk about it. More porridge?"
+"Gladly. And those penitents, what, out of curiosity, are they doing penance for? For what transgressions?"
+"I'm not allowed to talk about that."
+"But I'm not asking about specific cases. Just generally."
+The cellarer coughed and looked around fearfully, undoubtedly aware that in a house of demerits, even the kitchen walls, hung with pans and garlic, might have ears.
+"Oh," he said quietly, wiping his grease-stained hands on his habit. "They do penance here for various things, son, for various things. Mostly wayward priests. And monks. Those for whom their vows were too burdensome. You can imagine: vows of obedience, humility, poverty… Also abstinence and moderation… As they say: plus bibere, quam orare. Also the vow of chastity, unfortunately…"
+"Femina," Reynevan guessed, "instrumentum diaboli?"
+"If only femina…" sighed the cellarer, raising his eyes. "Ah, ah… An immensity of sins, an immensity… No denying it. And we have more serious matters here… Oh, more serious… But I'm not allowed to talk about that. Have you finished eating, son?"
+"I have finished. Thank you. It was tasty."
+"Come by whenever you wish."
+
+***
+
+The interior of the church was exceptionally gloomy; the glow of candles and the light from the narrow little windows fell only on the area around the altar itself, the tabernacle, the crucifix, and the triptych depicting the Lamentation. The rest of the presbytery, the entire nave, the wooden galleries, and the stalls were plunged in murky twilight. Perhaps this was intentional, Reynevan couldn't shake the thought, perhaps it was so that during prayers the demerits would not see each other's faces, so they would not try to guess from them the sins and transgressions of others. And compare them with their own.
+"I am here."
+The melodious and deep voice, which came from a recess hidden between the stalls, resounded—it was hard to resist such an impression—with gravity and dignity. But it was probably only an echo, the reverberation from the canopy of the vault, rattling among the stone walls. Reynevan approached.
+Above the confessional, which exuded a faint scent of incense and varnish, loomed an image of Saint Anne with the Virgin and Child, with Mary on one knee and Jesus on the other. Reynevan saw the image, as it was illuminated by a small oil lamp. Illuminating the image, the lamp plunged the surroundings into an even deeper gloom, so Reynevan saw the man sitting inside the confessional only in outline.
+"To you, then," said the man, awakening further echoes, "I will have to thank for the chance to regain freedom of movement, eh? Thank you, then. Though it seems to me that I owe rather more to a certain Wrocław canon, don't I? And to an event that took place… Well, say it for the record. So that I am completely sure I am talking to the right person. And that this is not a dream."
+"July eighteenth, year eighteen."
+"Where?"
+"Wrocław. New Town…"
+"Of course," the man confirmed after a moment. "Of course, Wrocław. Where else could it be, if not there? Good. Approach now. And assume the prescribed position."
+"Excuse me?"
+"Kneel."
+"My brother was killed," Reynevan said, not moving from his place. "I myself am threatened with death. I am being hunted, I must flee. And before that, settle a few matters. And a few scores. Father Otto assured me that you could help me. Precisely you, whoever you are. But I have no intention of kneeling before you… What should I call you? Father? Brother?"
+"Call me what you will. Even uncle. It is profoundly indifferent to me."
+"I'm in no mood for jokes. I told you, my brother was killed. The prior said we can leave here. Let us leave then, let us depart this sad place, let us set out on our journey. And on the way, I will tell you what is necessary. So that you know what is necessary. And no more than necessary."
+"I asked you," the echo of the man's voice rumbled even deeper, "to kneel."
+"And I said: I have no intention of confessing to you."
+"Whoever you are," said the man, "you have two paths to choose from. One here, to me, on your knees. The other through the monastery gate. Without me, it goes without saying. I am not a mercenary, boy, nor a hired thug to settle your affairs and scores. It is I, mark my words, who decide how much and what kind of knowledge I need. Besides, it is also a matter of mutual trust. You do not trust me, so how can I trust you?"
+"The fact that you will leave prison," Reynevan snapped back defiantly, "you can owe to me. And to Father Otto. Mark that yourself and don't try to play the big shot. And present me with choices. Because it is not I, but you who stand before a choice. Either you go with me, or you rot here further. The choice…"
+The man interrupted him by loudly knocking on the wood of the confessional.
+"Know," he said after a moment, "that difficult choices are not new to me. You sin with pride, thinking I will fear them. Just this morning I did not know of your existence, just this evening, if need be, I will forget your existence. I repeat, and for the last time: either a confession, as an expression of trust, or farewell. Hurry with your choice, little time remains until Sext. And here, the liturgy of the hours is strictly observed."
+Reynevan clenched his fists, fighting an overwhelming urge to turn and leave, to go out into the sun, fresh air, greenery, and space. Finally, he broke. Common sense prevailed.
+"I don't even know," he forced out, kneeling on the worn wood, "if you are a priest."
+"It doesn't matter," something like mockery sounded in the voice of the man from the confessional. "I am only interested in confession. Do not expect absolution."
+"I don't even know what to call you."
+"I have many names," came from behind the grille, quietly but distinctly. "The world knows me by various names. Since I have a chance to be restored to the world… I will have to choose something… Wilibald of Hirsau? Or perhaps, hmm… Benignus of Aix? Paul of Tyniec? Cornelius van Heemskerck? Or perhaps… Or perhaps… Master Szarlej? How does that strike you, boy: Master Szarlej? Well, alright, don't make faces. Simply: Szarlej. Will that do?"
+"It will do. Let's get to the point, Szarlej."
+
+***
+
+Barely had the massive, truly fortress-worthy gates of the Strzegom Carmel slammed shut behind them with a bang, barely had they both moved away from the beggars and supplicants lounging by the gate, barely had they entered the shade of the roadside poplars, when Szarlej surprised Reynevan completely and utterly.
+The recent demerit and prisoner, just a moment ago fascinatingly mysterious, brooding and dignifiedly silent, now suddenly roared with Homeric laughter, took a deer-like leap upwards, threw himself on his back into the weeds and for a few moments rolled among the greenery like a colt, all the while roaring and laughing alternately.
+Finally, before the dumbfounded Reynevan's eyes, his recent confessor did a somersault, jumped up, and made a highly obscene gesture towards the gate with a bent elbow. The gesture was supported by a long litany of extremely indecent curses and insults. Several concerned the prior personally, several the Strzegom monastery, several the Carmelite order as a whole, and several were of a general nature.
+"I didn't think," Reynevan calmed his horse, startled by the performance, "it was so hard there."
+"Judge not, that ye be not judged," Szarlej brushed off his clothes. "That's for starters. Secondly, kindly refrain from comments, at least for a while. Thirdly, let us hasten to the town."
+"To town? What for? I thought…"
+"Don't think."
+Reynevan shrugged, urged his mount along the highway. He pretended to turn his head, but couldn't stop himself from furtively observing the man walking beside his horse.
+Szarlej was not very tall, he was even a little shorter than Reynevan, but this detail escaped attention, because the recent demerit was broad-shouldered, powerfully built, and probably strong, which could be inferred from his sinewy forearms, rippling with muscles, peeking out from under too-short sleeves. Szarlej had refused to leave the Carmel in a habit, and the clothes he was given were slightly odd.
+The demerit's face had rather coarse features, not to say rugged; however, it was a lively face, constantly changing, playing a whole gamut of expressions. His hooked and masculinely prominent nose bore traces of an old break, the dimple of his chin disappeared into an old but still visible scar. Szarlej's eyes, green as bottle glass, were very strange. When one looked into them, one's hand instinctively checked if the purse was in place and the ring on the finger. Thoughts anxiously turned to the wife and daughters left at home, and faith in female virtue revealed all its naivety. Suddenly, one lost all hope of getting back borrowed money, five aces in a piquet hand ceased to be surprising, an authentic seal under a document began to look damn inauthentic, and a dearly bought horse began to wheeze strangely in the lungs. That's what one felt when looking into Szarlej's bottle-green eyes. At his face, in which there was decidedly more of Hermes than of Apollo.
+They passed a large patch of suburban gardens, then the chapel and hospital of St. Nicholas. Reynevan knew that the hospice was run by the Joannites, he also knew that the order had a commandery in Strzegom. He immediately remembered Duke Kantner and his order, directing him to Mała Oleśnica. And he began to worry. He could be associated with the Joannites, so the road he was taking was not the road of a hunted wolf; he doubted that Canon Otto Beess would approve of the choice. At that moment, Szarlej for the first time gave proof of his perceptiveness. Or an equally rare ability to read minds.
+"There is no reason for concern," he said freely and cheerfully. "Strzegom has over two thousand inhabitants, we will disappear among them like a fart in a snowstorm. Besides, you are under my protection. After all, I have committed myself."
+"All this time," Reynevan replied after a long moment, which he needed to cool down, "I've been wondering how much such a commitment means to you."
+Szarlej bared his white teeth at the flax gatherers marching in the opposite direction, comely lasses in loosely open shirts, revealing much of their sweaty and dusty charms. There were about a dozen lasses, and Szarlej grinned at each of them in turn, so Reynevan lost hope of hearing an answer.
+"The question," the demerit surprised him, tearing his gaze from the round bottom of the last of the gatherers, jiggling under a sweat-soaked shift, "was of a philosophical nature. I don't usually answer such questions sober. But I promise you: I will give you an answer before sunset."
+"I don't know if I'll live to see it. Or if I won't burn with curiosity before then."
+Szarlej did not answer, but instead quickened his pace so that Reynevan had to force his horse into a light trot. So they quickly found themselves under the Świdnicka Gate. Beyond it, beyond a crowd of dirty pilgrims and ulcer-covered beggars squatting in the shade, was Strzegom, its narrow, muddy, stinking, and crowded streets.
+Wherever and for whatever purpose their road led, Szarlej knew it, for he led confidently and without any hesitation. They passed through a street where so many looms clattered that it must have been Weavers' or Clothiers' Street. Soon they found themselves in a small square, dominated by a church tower. Cattle had recently been driven through the square—it could be seen and smelled.
+"Just look," said Szarlej, stopping. "Church, tavern, brothel, and in the middle between them a pile of shit. Behold the parable of human life."
+"And supposedly," Reynevan didn't even smile, "you don't philosophize sober."
+"After a long period of abstinence," Szarlej unerringly directed his steps into an alley, towards a counter set with casks and tankards, "the mere scent of good beer intoxicates me. Hey, good man! Strzegom white, please! From the cellar! Be so kind as to pay, boy, for as Scripture says, argentum et aurum non est mihi."
+Reynevan snorted, but threw a few hellers onto the counter.
+"Will I finally find out what business brought you here?"
+"You will. But only when I've drunk at least three of these businesses."
+"And then?" Reynevan frowned. "That just-mentioned brothel?"
+"I don't rule it out," Szarlej raised his tankard. "I don't rule it out, boy."
+"And then? A three-day binge to celebrate regaining freedom?"
+Szarlej did not answer, as he was drinking. Before he tilted the tankard, however, he winked from behind it, and that wink could mean anything.
+"That was a mistake, though," Reynevan spoke seriously, staring at the demerit's throat, working with each swallow. "Perhaps the canon's mistake. Or perhaps mine, for listening to him. For getting involved with you."
+Szarlej drank, paying him no attention.
+"Fortunately," Reynevan continued, "all this can easily be remedied. And put an end to."
+Szarlej took the tankard from his lips, sighed, licked the foam from his upper lip.
+"You want to tell me something," he guessed. "Speak then."
+"We two," Reynevan said coldly, "simply don't suit each other."
+The demerit nodded for another beer to be poured for him, for a moment seeming interested only in the tankard.
+"We differ a bit, true," he admitted, after taking a sip. "I, for example, am not accustomed to fornicating with other men's wives. If one looked carefully, a few more differences would probably be found. That's normal. For we were created in His image and likeness, but the Creator took care of individual traits. And praise be to Him for that."
+Reynevan waved his hand, increasingly angry.
+"I'm wondering," he blurted out, "whether to bid you farewell in the Creator's name. Right here, right now. So that we may go our separate ways. Because truly, I don't know how you can be of any use to me. I'm afraid, in no way at all."
+Szarlej looked at him from over his tankard.
+"Of use?" he repeated. "In what way? It's easy to find out. Shout: 'Help, Szarlej!', and help will be given to you."
+Reynevan shrugged and turned with the intention of leaving. He bumped into someone. And that someone struck his horse so hard that the horse whinnied and reared, throwing him into the dung.
+"How are you walking, you oaf? Where are you going with that nag? This is a town, not your goddamn village!"
+The one who had bumped and berated him was one of three young men, richly, fashionably, and elegantly dressed. All three were remarkably similar—adorned in identical fanciful fezzes on hair curled with irons and padded doublets, quilted so densely that their sleeves looked like large caterpillars. They also wore the fashionable tight Parisian trousers called mi-parti, with legs in contrasting colours. All three carried turned staffs with knobs.
+"Jesus Christ and all the saints," repeated the dandy, twirling his staff. "What boorishness in this Silesia, what obscene savagery! Will anyone ever teach them culture?"
+"We will have to," said the second, with an identical Gallic accent, "take this trouble upon ourselves. And introduce them to Europe."
+"Right," chimed in the third fop, in blue-and-red mi-parti. "To begin with, as part of the introduction, let's give this lout here a European-style tanning. Come on, gentlemen, to your sticks! And let no one be lazy!"
+"Hold!" shouted the owner of the beer stall. "No brawls, merchant gentlemen! Or I'll call the guard!"
+"Shut your trap, Silesian clod, or you'll get it too."
+Reynevan tried to get up, but didn't manage in time. A staff thwacked him on the shoulder, another landed on his back with a dry crack, a third struck his buttocks. He decided there was no point waiting for further blows.
+"Help!" he shrieked. "Szarlej! Help!"
+Szarlej, who had been watching the incident with moderate interest, put down his tankard and, without hurrying, approached.
+"Enough fun."
+The dandies looked around—and as if on command, roared with laughter. Indeed, Reynevan had to admit, in his short and motley attire, the demerit did not look most dignified.
+"Christ Almighty," snorted the first dandy, apparently pious. "What amusing figures one meets at this end of the world!"
+"It's some local jester," judged the second. "You can tell by his outlandish clothes."
+"Clothes do not make the man," Szarlej replied coldly. "Be gone from here, sirs. Quickly."
+"Whaat?"
+"Gentlemen," Szarlej repeated, "be so kind as to depart. Meaning, go away from here somewhere far. It doesn't have to be Paris. The opposite end of the city will suffice."
+"Whaaaat?"
+"Gentlemen," Szarlej repeated, slowly, patiently, and emphatically, as if to children. "Gentlemen, kindly remove yourselves from here. And occupy yourselves with something customary for you. Sodomy, for example. Otherwise, gentlemen, you will be beaten, and thoroughly. And before any of you gentlemen manages to say credo in Deum patrem omnipotentem."
+The first fop swung his staff. Szarlej nimbly dodged the blow, grabbed the stick and twisted; the fop did a somersault and landed splat in the mud. With the staff that remained in his hand, the demerit whacked the second dandy over the head, sending him onto the brewer's counter, and with a blow as quick as thought, hit the third one on the arm. Meanwhile, the first one had jumped up and charged at Szarlej, roaring like a wounded bison. The demerit, with no visible effort, stopped the charge with a blow that bent the dandy in half. Szarlej then elbowed him powerfully in the kidneys, and as he fell, kicked him in the ear, seemingly nonchalantly. But the one kicked curled up like a worm and did not get up again.
+The remaining two looked at each other and, as if on command, drew daggers. Szarlej wagged a finger at them.
+"I wouldn't advise it," he said. "Knives cut!"
+The fops did not heed the warning.
+It seemed to Reynevan that he was observing the incident attentively. Yet he had missed something, for he did not understand how what happened had happened. Facing the dandies who were charging at him and flailing like windmills, Szarlej seemed almost motionless, and the movements he made when they reached him were slight, but so quick that they eluded the eye. One of the fops fell to his knees, his head bowed almost to the ground, gurgling and spitting out teeth one by one into the mud. The other sat and screamed. With his mouth wide open, he screamed and cried, thinly, modulatedly, incessantly, just like a long-unfed infant. He still held his own dagger in his hand, and his companion's knife was stuck in his thigh, embedded up to the gilded hilt.
+Szarlej looked up at the sky, spread his hands in a gesture meaning "didn't I tell you." He took off his ridiculous, tight little jerkin. He approached the one spitting teeth. He skilfully grabbed him by the elbows, lifted him, seized him by the sleeves, and with a few precise kicks, kicked the dandy out of his padded doublet. Then he himself donned it.
+"Clothes do not make the man," he said, stretching with relish, "but human dignity. But only a well-dressed man feels truly dignified."
+Then he bent down and tore the embroidered alms-pouch from the fop's belt.
+"A rich city, Strzegom," he said. "A rich city. Money, look for yourselves, is lying about in the streets."
+"If I were you…" said the owner of the beer stall, his voice trembling slightly. "If I were you, I'd run, sir. These are rich merchants, guests of the noble Guncelin von Laasan. Serves them right, for the brawls they're always starting… But you'd better run, because Master von Laasan…"
+"...rules the city," Szarlej finished, taking the purse from the third dandy. "Thanks for the beer, good man. Let's go, Reinmar."
+They went. The dandy with the knife in his thigh bade them farewell for a long time with a desperate, unceasing, infantile wail:
+"Waa-waa! Waa-waa! Waa-waa! Waa-waa!"
