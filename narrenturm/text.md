@@ -1529,3 +1529,341 @@ Translator's Footnotes (as in the original):
 
 
 
+**Chapter 4**
+in which Reynevan and Zawisza Czarny of Garbów discuss this
+and that on the Brzeg highway. Then Reynevan cures Zawisza of his gases,
+and Zawisza repays him with valuable lessons in recent history.
+
+Slowing his horse somewhat to fall back, the knight Zawisza Czarny of Garbów rose in his saddle and let out a long fart. Then he sighed deeply, leaned both hands on his saddlebow, and farted once more.
+“It’s this cabbage,” he explained matter-of-factly, drawing level with Reynevan again. “At my age, one shouldn’t eat so much cabbage. By Saint Stanisław’s bones! When I was young, I could eat, oh ho! A koflik, meaning more than half a pot of cabbage, I’d devour in the time it takes to say three Our Fathers. And it did me no harm. I could eat cabbage in any form, even twice a day, as long as there was plenty of caraway in it. And now, I barely eat a little, and it’s already boiling in my belly, and the gases, you see for yourself, boy, they nearly blow me apart. Old age, damn it, is no joy.”
+His horse, a powerful black stallion, bucked heavily, as if eager to charge. The stallion, right up to its nostrils, was covered in a black caparison adorned at the withers with Sulima, the knight’s coat of arms. Reynevan was surprised he hadn’t immediately associated the famous sign—untypical in Polish heraldry, both in terms of its honorable figure and its charges.
+“Why so silent?” Zawisza suddenly addressed him. “We ride and ride, and if you’ve uttered ten words, that’s all. And that’s when prodded. Are you sulking at me? Is it about Grunwald, eh? You know what, boy? I could assure you that I cannot be the one who killed your father. It would be no effort for me to say that I couldn’t have met your father in battle, because the Cracow banner was in the center of the Polish-Lithuanian formation, and Konrad the White’s banner was on the Teutonic left wing, beyond Stębark. But I won’t say it, because it would be a lie. Then, on the day of the Dispersion of the Apostles, I killed many men. In total confusion and a hellish turmoil, where little could be seen. Because it was a battle. And that’s that.”
+“My father,” Reynevan cleared his throat, “bore on his shield…”
+“I don’t remember coats of arms,” the Sulimczyk interrupted sharply and rather bluntly. “In a pitched battle, they mean nothing to me. What’s important is which way the horse’s head is turned. If it’s in the opposite direction to mine, I strike, even if he had the Mother of God herself on his shield. Besides, when blood sticks to dust, and dust to blood, you can’t see shit on the shields anyway. I repeat, Grunwald was a battle. And in battle, as in battle. Let’s leave it at that. Don’t sulk at me.”
+“And I’m not sulking.”
+Zawisza reined in his stallion slightly, rose in his saddle, and farted. Startled jackdaws flew up from the roadside willows. The knight of Garbów’s retinue, riding behind, consisting of a grizzled squire and four armed retainers, prudently kept their distance. Both the squire and the retainers rode fine horses and were well and cleanly dressed. As befitted the servants of someone who was the starosta of Kruszwica and Spiš and who drew, as rumor had it, revenues from, conservatively speaking, thirty villages. Neither the squire nor the retainers, however, looked like silken court pages. On the contrary, they looked like sturdy ruffians, and the weapons they were festooned with could by no means be considered ceremonial ornaments.
+“So,” Zawisza continued, “you’re not sulking. Why then are you so silent?”
+“Because it seems to me,” Reynevan dared, “that you are more sulking at me. And I know why.”
+Zawisza Czarny turned in his saddle and looked at him for a long time.
+“Well, now,” he finally spoke, “wronged innocence has spoken in a pitiful voice. Know, sonny, that it is not proper to defile other men’s wives. And if you want my opinion, it is a vile practice. And worthy of punishment. Frankly, in my eyes, you’re no better than one who cuts purses in a crowd or robs chicken coops. Well, I think, one petty scoundrel or another, a miserable rogue, who managed to take advantage of an opportunity.”
+Reynevan did not comment.
+“Centuries ago in Poland,” Zawisza Czarny continued, “there was a custom that a caught lover of other men’s wives was led to a bridge, and to that bridge his sack with eggs was nailed with an iron spike. And a knife was laid beside him. There, if you want freedom, cut yourself loose.”
+Reynevan did not comment this time either.
+“They don’t nail them anymore,” the knight concluded. “A pity. You wouldn’t call my lady Barbara flighty, but when I think that some gallant, some smooth-faced fellow like you, boy, might be taking advantage of her moment of weakness there in Cracow… Ach, what’s there to talk about.”
+The silence that fell for a few moments was once again broken by the cabbage eaten by the knight.
+“Yeees,” Zawisza groaned with relief and looked at the sky. “Know, however, boy, that I do not condemn you, for only he who is without sin should cast stones. And having thus summarized, let us speak no more of it.”
+“Love is a great thing, and it has many names,” said Reynevan, somewhat puffed up. “Listening to songs and romances, no one marvels at Tristan and Isolde, at Lancelot and Guinevere, or at the troubadour Guilhem de Cabestaing and Lady Margaret of Roussillon. And Adela and I are united by no less great, ardent, and sincere love. And yet, everyone seems to have conspired against us…”
+“If this love is so great,” Zawisza feigned interest, “why then are you not with your beloved? Why *fugas chrustas*, truly like a caught petty thief? Tristan, to be with Isolde, found a way, disguised himself, if memory serves, in the rags of a scabby beggar. Lancelot, to save his Guinevere, single-handedly attacked all the Knights of the Round Table.”
+“It’s not that simple,” Reynevan blushed like kermes. “Much good it will do her if they catch me and kill me. Not to mention myself. But I will find a way, don’t you worry. Even in disguise, like Tristan. Love always conquers. *Amor vincit omnia*.”
+Zawisza rose in his saddle and farted. It was hard to tell if it was a comment or just the cabbage.
+“One good thing from this dispute,” he said, “is that we’ve talked, because it was getting tedious riding in silence, with our noses down. Let’s talk more, young Silesian sir. On a neutral topic.”
+“Why,” Reynevan ventured after a moment, “are you traveling this way? Isn’t it closer from Cracow to Moravia through Racibórz? And the Opava region?”
+“Perhaps it is closer,” Zawisza agreed. “But you see, I can’t stand the Racibórz folk. The recently deceased Duke Jan, may the Lord shine upon his soul, was a real son of a bitch. He sent murderers after Przemek, son of Duke Noszak of Cieszyn, and I knew Noszak, and Przemko was my friend. So I didn’t avail myself of Racibórz hospitality then, nor will I now, because Jan’s little son, Mikołajek, is bravely, so they say, following in his parent’s footsteps. Besides, I took a detour because there was something to discuss with Kantner in Oleśnica, to repeat to him what Jagiełło had said about him. Moreover, the road through Lower Silesia is usually full of attractions. Though I see that opinion is somewhat exaggerated.”
+“Ha!” Reynevan guessed shrewdly. “That’s why you’re riding in full armor! And on a warhorse! You’re looking for a fight. Am I right?”
+“You are right,” Zawisza Czarny admitted calmly. “They said this place of yours is teeming with robber knights.”
+“Not here. It’s safe here. That’s why it’s so crowded.”
+Indeed, they could not complain about a lack of company. They themselves had not overtaken anyone, and no one had overtaken them, but in the opposite direction, from Brzeg towards Oleśnica, the traffic was lively. They had already passed several merchants with heavily laden wagons, drawing deep ruts, escorted by a dozen armed men with exceptionally thuggish faces. They passed a column of tar-makers on foot, laden with kegs, announced earlier by a pungent smell of resin. They passed a group of mounted Teutonic Knights of the Star, they passed a young Joannite with the face of a cherub, traveling with a squire, they passed drovers herding oxen, and also five suspicious-looking pilgrims who, though they politely asked the way to Częstochowa, did not cease to be suspicious in Reynevan’s eyes. They passed goliards riding in a rickety wagon, singing *In cratere meo*, a song set to the words of Hugh of Orléans, in merry and not entirely sober voices. And just now—a knight with a lady and a small retinue. The knight was in splendid Bavarian armor, and the rampant, two-tailed lion on his shield proved his belonging to the extensive Unruh family. The knight—it was clear to see—instantly recognized Zawisza’s coat of arms and greeted him with a nod, but so proud as to make it clear that the Unruhs were no worse than the Sulimczyks. The knight’s companion, dressed in a light purple gown, rode sidesaddle on a beautiful dark bay mare and wore—surprisingly—no head covering; the wind played freely in her golden hair. Riding past, the woman raised her head, smiled faintly, and bestowed upon Reynevan, who was gaping at her, a gaze so green and eloquent that the boy shivered.
+“Oh,” Zawisza said after a moment. “You will not die a natural death, little boy.”
+And he farted. With the force of a medium-caliber bombard.
+“To prove,” said Reynevan, “that I’m not at all cross with you for your malice and gibes, I shall cure you of these bloats and gases.”
+“Curious how.”
+“You shall see. If only we come across a shepherd.”
+A shepherd appeared rather quickly, but upon seeing the horsemen turning towards him from the highway, he bolted in panic, plunged into the thicket, and vanished like a golden dream. Only the bleating sheep remained.
+“We should have,” Zawisza assessed, standing in his stirrups, “taken him by stealth, from an ambush. Because now we won’t catch him in these rough grounds. Judging by the pace at which he fled, he has already managed to put the Odra between us and him.”
+“Or even the Nysa,” added Wojciech, the knight’s squire, demonstrating a lively wit and knowledge of geography.
+Reynevan, however, paid no heed to the mockery. He dismounted, walked with a sure step to the shepherd’s hut, from which he emerged a moment later with a large bunch of dried herbs.
+“It’s not the shepherd I need,” he explained calmly, “but this. And a little boiling water. Is there a pot to be found?”
+“Everything,” said Wojciech drily, “can be found.”
+“If there’s cooking involved,” Zawisza looked at the sky, “then we’ll make a stop. And a longer one, for night is near.”
+
+***
+
+Zawisza Czarny settled more comfortably on his sheepskin-covered saddle, glanced into the recently emptied cup, and sniffed it.
+“Truly,” he declared, “it tastes like sun-warmed ditch water, and stinks of cat. But it helps, by the Lord’s Passion, it helps! After the first cup, when it purged me, I felt better, and now it’s as if it’s been taken away by hand. My compliments, Reinmar. It’s a lie, as I see, that universities can only teach a young man drunkenness, debauchery, and foul language. A lie, truly.”
+“A smidgen of knowledge about herbs, nothing more,” Reynevan replied modestly. “What really helped you, Sir Zawisza, was taking off your armor, resting in a more comfortable position than the saddle…”
+“You’re too modest,” the knight interrupted. “I know my capabilities, I know how long I can endure in the saddle and armor. You should know that I often travel by night, with a lantern, without stopping. Firstly, it shortens the journey, and secondly, because then, if not by day, perhaps at least in the dark someone will accost me… And provide some amusement. But since you claim this is a peaceful area, ha, why tire the horses, let’s sit by the fire until dawn, let’s chat… After all, that’s entertainment too. Maybe not as good as gutting a few robber knights, but still.”
+The fire crackled cheerfully, illuminating the night. Fat sizzled and smelled, dripping from sausages and pieces of bacon roasted on sticks by squire Wojciech and the retainers. Wojciech and the retainers maintained silence and a respectful distance, but gratitude could be seen in the glances they cast at Reynevan. They evidently did not share their master’s fondness for all-night travel with a lantern.
+The sky above the forest glittered with stars. The night was cool.
+“Yeees,” Zawisza massaged his stomach with both hands. “It helped, it helped, better and faster than the usually recommended prayers to Saint Erasmus, patron of the bowels. What magical herb was that, what enchanted mandrake? And why did you seek it specifically from a shepherd?”
+“After Saint John’s Day,” explained Reynevan, glad for the chance to show off, “shepherds gather various herbs known only to them. They first carry the bundle tied to a *hyrkawica*, as the shepherd’s staff is called in Czech. Then the herbs are dried in the hut. And a decoction is brewed from them, which…”
+“Which is given to the flock to drink,” the Sulimczyk calmly interjected. “Meaning, you treated me like a bloated cow. Well, but if it helped…”
+“Don’t be angry, Sir Zawisza. Folk wisdom is immense. None of the great physicians and alchemists disdained it, neither Pliny, nor Galen, nor Walafrid Strabo, nor the learned Arabs, nor Gerbert of Aurillac, nor Albertus Magnus. Medicine has benefited greatly from the common people, and especially from shepherds. For they possess great and immeasurable knowledge of herbs and their healing powers. And of… other powers.”
+“Indeed?”
+“Indeed,” confirmed Reynevan, moving closer to the fire for a better view. “You wouldn’t believe, Sir Zawisza, how much power is hidden in this bundle, in this dry wisp from a shepherd’s hut, for which no one would give a broken shilling. Look: chamomile, water lily, seemingly nothing special, but when you brew an infusion, they work wonders. Likewise those I gave you: meadowsweet, hogweed, angelica. And these, here, are called ‘sporzyczek’ and ‘siedmikraska’ in Czech. Few physicians know how effective they are. And with a decoction of those called ‘jakubki,’ shepherds sprinkle their sheep in May, on the day of Saints Philip and James, for protection against wolves. Believe it or not, a wolf will not touch sprinkled sheep. These are Saint Wendelin’s berries, and this is Saint Linhart’s herb; both saints, as you probably know, are patrons of shepherds, alongside Martin. When giving these herbs to the flock, one must invoke these very saints.”
+“What you were muttering over the cauldron was not about saints.”
+“It was not,” admitted Reynevan, clearing his throat. “I told you, folk wisdom…”
+“Such wisdom smells strongly of the stake,” said the Sulimczyk gravely. “If I were you, I’d be careful whom I treat. Whom I talk to. And in whose presence I invoke Gerbert of Aurillac. I’d be careful, Reinmar.”
+“I am careful.”
+“And I,” spoke up squire Wojciech, “think that if there is magic, it’s better to know about it than not to know. I think…”
+He fell silent, seeing Zawisza’s threatening gaze.
+“And I think,” said the knight of Garbów sharply, “that all the evil in this world comes from thinking. Especially when done by people entirely lacking the predisposition for it.”
+Wojciech bent even lower over the harness he was cleaning and greasing. Reynevan waited a longer moment before speaking.
+“Sir Zawisza?”
+“Hm?”
+“In the inn, in the dispute with that Dominican, you didn’t hide… Well… That as if… You are for the Czech Hussites. Or at least more for than against.”
+“And what, did thinking immediately associate you with heresy?”
+“That too,” Reynevan admitted after a moment. “But I’m even more curious…”
+“What are you curious about?”
+“How it was… How it was at Německý Brod, in the year twenty-two? When you were taken into Czech captivity? Because legends are already circulating…”
+“What kind of legends?”
+“Well, that the Hussites captured you because escape seemed unworthy to you, and you couldn’t fight, being an envoy.”
+“Is that what they say?”
+“Yes. And also, that… That King Sigismund abandoned you in your need. And himself fled ignominiously.”
+Zawisza was silent for a moment.
+“And you,” he finally spoke, “would like to know the true version, eh?”
+“If,” Reynevan replied hesitantly, “it doesn’t bother you…”
+“And why should it bother me? Time passes more pleasantly with a chat. Why then not chat?”
+Contrary to his declaration, the knight of Garbów was silent again for a long time, playing with the empty cup. Reynevan was not sure if he was waiting for his questions, but he was in no hurry to ask them. As it turned out, rightly so.
+“To begin,” Zawisza began, “it seems to me, we must start at the beginning. Which is that King Władysław sent me to the Roman King on a rather delicate mission… it concerned a marriage with Queen Euphemia, Sigismund’s sister-in-law, widow of Wenceslaus of Bohemia. As is now known, nothing came of it, Jagiełło preferred Sonya Holszańska, but at that time it was not known. King Władysław instructed me to settle with the Luxembourger what was necessary, mainly the dowry. So I went. But not to Požun or Buda, but to Moravia, from where Sigismund was just setting out on another crusade against his disobedient subjects, with the firm intention of capturing Prague and finally eradicating the Hussite heresy in Bohemia.”
+“When I arrived there, and I reached it on Saint Martin’s Day, Sigismund’s crusade was developing quite nicely. Although the Luxembourger’s army was somewhat weakened. Most of the Lusatian army, led by Landvogt Rumpold, had already managed to go home, contenting themselves with devastating the lands around Chrudim. The Silesian contingent had returned home, in which, incidentally, was our recent host and table companion, Duke Konrad Kantner. So, in the march on Prague, the king was effectively supported only by Albrecht’s Austrian knighthood and the Moravian army of the Bishop of Olomouc. Well, but Sigismund had more than ten thousand Hungarian cavalry alone…”
+Zawisza fell silent for a moment, gazing at the crackling fire.
+“Willy-nilly,” he continued, “I had to, in order to negotiate Jagiełło’s marriage with the Luxembourger, take part in their crusade. And observe various things. Very various. Such as, for example, the capture of Polička and the massacre committed after its capture.”
+The retainers and the squire sat motionless; who knows, perhaps they were even asleep. Zawisza spoke in a quiet and rather monotonous voice. Sleep-inducing. Especially for someone who probably knew the story. Or had even participated in the events.
+“After Polička, Sigismund marched on Kutná Hora. Žižka blocked his way, repelled several attacks by the Hungarian cavalry, but when news broke that the town had been taken by treason, he retreated. The royal forces entered Kutná Hora, intoxicated with triumph… Ha, ha, they had defeated Žižka himself, Žižka himself had fled before them! And then the Luxembourger made an unforgivable mistake. Although I advised him against it, as did Filip Scollari…”
+“You mean, Pippo Spano? That famous Florentine condottiero?”
+“Don’t interrupt, boy. Against Pippo’s advice and mine, King Sigismund, convinced that the Czechs had fled in panic and would not stop until Prague, allowed the Hungarians to disperse throughout the surrounding area to, as he called it, seek winter quarters, because the frost was severe. So the Magyars scattered and spent Christmas plundering, raping women, burning villages, and murdering those whom they considered heretics or their sympathizers. That is, anyone who came their way.”
+“At night, glows lit up the sky, by day, smoke, and the king feasted in Kutná Hora and held court. And then, on Epiphany, in the morning, news broke: Žižka is coming. Žižka had not fled, he had only retreated, regrouped, strengthened, and was now marching on Kutná Hora with the full force of Tabor and Prague, he was already in Kaňk, he was already in Nebovidy! And what? What did the valiant crusaders do upon this news? Seeing that there was no time to gather the army scattered around the area, they fled, leaving behind a lot of equipment and belongings, setting fire to the city behind them. Pippo Spano momentarily controlled the panic and formed a line halfway between Kutná Hora and Německý Brod.”
+“The frost had eased, it was cloudy, gray, wet. And then, from afar, we heard… And we saw… Boy, I had never heard or seen anything like it before, and I have heard and seen much. They were marching towards us, they, the Taborites and Praguers, marching, carrying banners and monstrances, in a beautiful, even, disciplined formation, with singing thundering like thunder. Their infamous wagons were coming, from which cannons, howitzers, and *tarasnice* grinned at us…”
+“And then the conceited German *helden*, Albrecht’s proud Austrian men-at-arms, the Magyars, the Moravian and Lusatian nobility, Spano’s mercenaries, all as one man, took to flight. Yes, boy, you didn’t mishear: before the Hussites came within firing range, Sigismund’s entire army was fleeing in total disarray, in wild panic, head over heels, towards Německý Brod. Knighted knights fled, trampling and knocking each other over, screaming in fear, before the Prague cobblers and rope-makers, before peasants in bast shoes, whom they had so recently mocked. They fled in panic and terror, throwing away weapons which, during this entire crusade, they had raised mainly against the defenseless. They fled, boy, before my astonished eyes, like cowards, like rascals caught by an orchardist stealing plums. As if they were frightened of… the truth. The motto VERITAS VINCIT, embroidered on the Hussite banners.”
+“The Hungarians and the iron lords mostly managed to escape to the left bank of the frozen Sázava. Then the ice broke. I advise you, boy, with all my heart, if you ever have to fight in winter, never flee across ice in armor. Never.”
+Reynevan promised himself he never would. The Sulimczyk panted, cleared his throat.
+“As I was saying,” he continued, “the knighthood, though it lost its honor, saved its skin. Mostly. But the common foot soldiers, hundreds of spearmen, archers, pavisiers, mercenary soldiers from Austria and Moravia, armed burghers from Olomouc, these the Hussites caught and beat, beat terribly, beat for two miles, from the village of Habry to the outskirts of Německý Brod. And the snow on that road turned red.”
+“And you? How were you…”
+“I did not flee with the royal knighthood, nor did I flee then, when Pippo Spano and Jan von Hardegg fled, and they, to give them their due, fled as some of the last and not without a fight. I too, contrary to fables, fought, and fought hard. Envoy or not, one had to fight. And I didn’t fight alone, there were a few Poles with me and a good few Moravian squires. Those who didn’t like to flee, especially through icy water. So we fought, and I’ll tell you this much, many a Czech mother weeps there because of me. But *nec Hercules*…”
+The retainers, as it turned out, were not asleep. For one had just jumped as if bitten by a viper, another cried out in a strangled voice, a third grated his sword as he drew it. Squire Wojciech snatched up his crossbow. A sharp voice and imperious gesture from Zawisza calmed them all.
+Something emerged from the darkness.
+At first, they thought it was a fragment, a clump of darkness, even darker than darkness itself, budded from the impenetrable gloom, marking itself with anthracite blackness in the night’s flickering darkness, brightened by flashes from the fire. When the flame flared more violently, more vividly and brightly, this piece of darkness, losing none of its blackness, nevertheless took shape. And form. A small, squat, paunchy form, the form of neither a bird ruffling its feathers, nor a beast with bristling fur. The creature’s head, drawn into its shoulders, was adorned with a pair of large, pointed ears, sticking up, like a cat’s, vertically and motionless.
+Wojciech slowly, without taking his eyes off the creature, put down his crossbow. One of the retainers invoked the intercession of Saint Kinga, but he too was silenced by Zawisza’s gesture, a gesture not violent, but full of power and authority.
+“Welcome, stranger,” spoke the knight of Garbów, his composure impressive. “Sit by our fire without fear.”
+The creature moved its head; Reynevan caught a fleeting glint of large eyes in which the fire was reflected redly.
+“Sit here without fear,” Zawisza repeated, his voice both kind and firm. “You need not fear us.”
+“I do not fear,” the creature rasped. To everyone’s astonishment.
+The creature then extended a paw. Reynevan would have jumped back, but he was too afraid to move. And suddenly, with amazement, he realized that the paw was pointing to the coat of arms on Zawisza’s shield. Then, to his even greater astonishment, the creature pointed to the cauldron with the herbal infusion.
+“Sulima and the Herbalist,” the creature croaked. “Righteousness and knowledge. What then is there to fear? I do not fear. My name is Hans Mein Igel.”
+“Welcome to us, Hans Mein Igel. Are you hungry? Or thirsty?”
+“No. Just to sit. To listen. For he heard them speaking. And came to listen.”
+“You are our guest.”
+The creature approached the fire, bristled into a ball, and became motionless.
+“Yeees,” Zawisza once again impressed with his composure. “Where was I?”
+“On that…” Reynevan swallowed, regained his speech. “On that, *nec Hercules*.”
+“Just so,” rasped Hans Mein Igel.
+“Well,” said the Sulimczyk casually, “so it was. *Nec Hercules*, they overcame us. There were a lot of them, Hussites, I mean. And we were lucky that the Utraquist cavalry fell upon us, for the Taborite flail-men know no such words as ‘pardon’ or ‘ransom.’ When they finally unhorsed me, someone who remained with me, Mertwicz or Rarowski, managed to shout out who I was. That I had been at Grunwald with Žižka and Jan Sokol of Lamberk.”
+Reynevan sighed quietly, hearing the famous names. Zawisza was silent for a long time.
+“The rest,” he said at last, “you must know. For the rest cannot differ much from the legend.”
+Reynevan and Hans Mein Igel nodded silently. It was a long time before the knight spoke again.
+“Now,” he said, “it seems to me that in my old age I’ve earned myself a curse or something. Because when I was ransomed from captivity and returned to Cracow, all that I saw then, on Epiphany, at Německý Brod, all that I looked at the next day, after the capture of the city, I told King Władysław. I told him. I didn’t advise, I didn’t push my opinion, I wasn’t importunate in my judgments and assessments. I simply told him, and he, the cunning old Lithuanian, listened. And he knew. And never, boy, be sure of this, even if the Pope shed tears over the threatened faith, and the Luxembourger raged and threatened, the cunning old Lithuanian will not send Polish and Lithuanian knighthood against the Czechs. And not at all out of spite for the Luxembourger for the Wrocław sentence or for the partition schemes in Požun, but because of my story. And the only correct conclusion drawn from it, that Polish and Lithuanian knighthood is needed against the Teutonic Knights and it would be foolish, completely senseless, to drown it in the Sázava, Vltava, or Elbe. Jagiełło, after hearing my story, will never join the anti-Hussite crusades. Due to my doing, as it was said. That’s why I’m going to the Danube, against the Turks, before they excommunicate me.”
+“You’re joking,” Reynevan stammered. “Where you… What excommunication? A knight like you… You must be joking.”
+“Surely,” Zawisza nodded. “Surely I am. But there is fear.”
+They were silent for some time. Hans Mein Igel panted quietly. The horses in the darkness snorted restlessly.
+“Would this be,” Reynevan ventured, “the end of knighthood? And chivalry? Infantry, united and compact, shoulder to shoulder, not only able to withstand mounted men-at-arms, but even defeat them? The Scots at Bannockburn, the Flemings at Courtrai, the Swiss at Sempach and Morgarten, the English at Agincourt, the Czechs at Vítkov Hill and Vyšehrad, at Sudoměř and Německý Brod… Maybe this is the end… of an era? Maybe the time of knighthood is ending?”
+“War without knighthood and chivalry,” Zawisza Czarny replied after a moment, “must eventually degenerate into mere murder. And consequently, genocide. I would not want to take part in something like that. But it will not happen so quickly, so I don’t think I’ll live to see it. Between us, I wouldn’t want to live to see it.”
+A long silence reigned. The fire was dying down, the embers glowed ruby-red, from time to time erupting in a bluish flame or a geyser of sparks. One of the retainers snored. Zawisza rubbed his forehead with his hand. Hans Mein Igel, black as a clump of darkness, twitched his ears. When his eyes once again reflected the flame, Reynevan realized that the creature was looking at him.
+“Love,” Hans Mein Igel suddenly spoke, “has many names. And for you, young Herbalist, it is she who will determine your fate. Love. She will save your life when you don’t even know it is her. For the Goddess has many names. And even more faces.”
+Reynevan was silent, dumbfounded. The one who reacted was Zawisza.
+“Well, well,” he said. “A prophecy. Like any, hard to understand, like any, it fits everything and nothing at the same time. No offense, Sir Hans. And for me? Will you have something?”
+Hans Mein Igel moved his head and ears.
+“By a great river,” he said at last in his not very clear, hoarse voice, “on a hill stands a castle. On a hill, and water flows around it. And it is called: Golubac. A bad place. Do not go there, Sulima. A bad place for you, Golubac. Do not go there. Turn back.”
+Zawisza was silent for a long time, clearly lost in thought. He was silent for so long that Reynevan thought he would dismiss the strange words of the strange night creature with silence. He was mistaken.
+“I,” Zawisza broke the silence, “am a man of the iron sword. I know what awaits me. I know my fate. I have known it for almost forty years, from the moment I took a sword in my hand. But I will not look back. I will not look at the *hundsfelds*, dog graves, and royal betrayals left behind my horse, at the baseness, at the meanness and impiety of spirit. I will not turn back from my chosen path, good Sir Hans Mein Igel.”
+Hans Mein Igel said not a word, but his large eyes gleamed.
+“Nevertheless,” Zawisza Czarny rubbed his forehead, “I would prefer it if, like for Reynevan, you prophesied love for me. Not death.”
+“Me too,” said Hans Mein Igel, “I would prefer it. Farewell.”
+The creature suddenly grew larger, its fur bristled intensely. And it disappeared. It dissolved into the darkness, the same darkness from which it had emerged.
+
+***
+
+The horses snorted and pawed the ground in the darkness. The retainers snored. The sky was brightening, stars paling above the treetops.
+“Incredible,” Reynevan finally said. “That was incredible.”
+The Sulimczyk jerked his head up, awakened from a doze.
+“What? What’s incredible?”
+“That… Hans Mein Igel. You know, Sir Zawisza, that… Well, I must admit… I was full of admiration for you.”
+“Why?”
+“When he emerged from the gloom, you didn’t even flinch. Nay, your voice didn’t even tremble. And how you talked to him later, it was admirable… And yet it was… A night creature. Non-human… An alien.”
+Zawisza Czarny of Garbów looked at him for a long time.
+“I know plenty of people…” he replied at last in a very serious voice. “A whole lot of people more alien to me.”
+
+***
+
+The dawn was misty, wet; droplets of dew hung like whole garlands on cobwebs. The forest was quiet, but menacing like a sleeping beast. The horses shied away from the approaching, creeping mist, snorted, shook their heads.
+Beyond the forest, at a crossroads, stood a stone cross. One of the numerous monuments to crime in Silesia. And to deeply belated remorse.
+“Here we part,” said Reynevan.
+The Sulimczyk looked at him, refraining, however, from comment.
+“Here we part,” the boy repeated. “Like you, I too have no taste for looking back at *hundsfelds*. Like you, the thought of baseness and meanness of spirit is repugnant to me. I am returning to Adela. For… No matter what that Hans said… My place is with her. I will not flee like a coward, like a petty thief. I will face what I must face. As you faced it at Německý Brod. Farewell, noble Sir Zawisza.”
+“Farewell, Reinmar of Bielawa. Take care of yourself.”
+“And you too. Who knows, maybe we’ll see each other again someday.”
+Zawisza Czarny of Garbów looked at him for a long time.
+“I don’t think so,” he said at last.
+
+**Chapter 5**
+in which Reynevan first learns firsthand how a hunted wolf feels in a surrounded forest. Then he meets Nikoletta the Fair-haired. And then he drifts downstream.
+
+Beyond the forest, at a crossroads, stood a stone penitential cross. One of the numerous monuments to crime in Silesia. And to deeply belated remorse.
+The cross had arms ending in the shape of trefoils. On its base, widened at the bottom, an axe was carved—the tool with which the penitent had dispatched his neighbor to the next world. Or a few neighbors.
+Reynevan examined the cross more closely. And swore very ugly.
+It was exactly the same cross where, a good three hours ago, he had bid farewell to Zawisza.
+The fog was to blame, which since dawn had been drifting like smoke over fields and forests; the drizzle was to blame, which with fine drops had lashed his eyes, and when it stopped, had intensified the fog even more. Reynevan himself was to blame, his fatigue and lack of sleep, his distraction caused by constant thoughts of Adela de Stercza and plans for her liberation. And besides, who knows? Perhaps the real culprits were the numerous mamunas, zwodnicas, lesoviks, mayki, kobolds, sprites, will-o'-the-wisps, and other mischievous spirits specializing in leading people astray, which inhabited the Silesian forests? Less amiable and less benevolent relatives and acquaintances of Hans Mein Igel, whom he had met during the night?
+However, looking for culprits made no sense, and Reynevan knew this all too well. It was necessary to assess the situation rationally, make a decision, and act according to the latter. He dismounted, leaned against the penitential cross, and began to think intensely.
+Instead of being somewhere halfway to Bierutów after three hours of riding, he had been riding in circles all morning and was still where he had started, that is, in the vicinity of Brzeg, no more than a mile from the town.
+Or perhaps, he thought, perhaps fate guided me? Gave me a hint? Perhaps I should take advantage of being close, go to the city, to the friendly Hospital of the Holy Spirit, ask for help there? Or is it better not to waste time and, according to the original plan, ride straight to Bierutów, to Ligota? To Adela?
+Cities should be avoided, he concluded after some thought. His good, even friendly, contacts with the Brzeg Hospitallers were known to everyone, and therefore also to the Sterczas. Moreover, the road to the Joannite commandery in Mała Oleśnica, the place where Duke Konrad Kantner wanted to seclude him, led through Brzeg. Leaving aside the duke’s generally good intentions, and leaving aside the fact that Reynevan had absolutely no desire to spend several years in penance with the Joannites, someone from Kantner’s retinue could have blabbed or been bribed, and then it was probable that the Sterczas were lurking at the Brzeg tollgates.
+So, Adela, he thought, I’m going to Adela. To Adela’s rescue. Like Tristan to Isolde, like Lancelot to Guinevere, like Gareth to Lyonors, like Guinglain to Esmeralda, like Palmerin to Polinarda, like Medoro to Angelica. In short, a bit foolishly and a bit riskily, nay, madly, straight into the lion’s jaw. But, firstly, this might surprise the pursuit, they might not expect it. Secondly, Adela is in need, waiting, and surely longing; I cannot let her wait.
+He brightened up, and with him, as if by Merlin’s wand, the sky began to brighten. It was still misty and wet, but the sun could already be felt, something up there was slowly brightening, and the omnipresent grayness began to take on colors. The birds, hitherto gloomily silent, began to chirp timidly, and finally chirped for good. The drops on the cobwebs glistened like silver. And the roads leading from the crossroads, shrouded in mist, looked like some fabulous netherworlds.
+And there is also a way not to succumb to misleading charms. Angry that he had been too conceited and hadn’t thought of it earlier, Reynevan pushed aside with his foot the weeds growing around the base of the cross, and walked along the edge of the road. Quickly and without difficulty, he found what he was looking for. Feathery meadow caraway, pink-flowered eyebright, spurge. He stripped the stems of their leaves, put them together. It took a moment before he remembered how and on which fingers to wind them, how to intertwine them, how to make the *nodus*, the knot. And how the spell sounded.
+One, two, three
+*Wolfsmilch, Kümmel, Zahntrost*
+*Binde zu samene*
+*Semitae eorum incurvatae sunt*
+And my road is straight.
+After a moment, one of the crossroads became brighter, more pleasant, inviting. Interestingly, without the help of the charm, Reynevan would never have guessed that this was the right one. But Reynevan knew that charms do not lie.
+
+***
+
+He had been riding for perhaps the time it takes to say three Our Fathers when he heard a dog barking and the loud, excited honking of geese. Shortly thereafter, the smell of smoke pleasantly tickled his nostrils. The smoke of a smokehouse, in which, beyond any doubt, something very tasty was hanging. Perhaps ham. Perhaps bacon. Or perhaps a smoked goose breast. Reynevan sniffed the aroma so intently that he forgot about the world and, not even knowing how or when, rode into the enclosure and onto the yard of a roadside inn.
+The dog barked at him, but more out of duty; the gander, stretching its neck, hissed at the horse’s pasterns. The smell of smoked meat was joined by the smell of baking bread, which stood out even above the stench of a large dung heap, besieged by geese and ducks.
+Reynevan dismounted, tied his gray horse to a post. The stable boy, who was grooming horses nearby, didn’t even pay attention to him, he was so busy. Reynevan’s attention, however, was drawn to something else—on one of the porch posts, on rather haphazardly tangled multicolored threads, hung a hex: three twigs tied in a triangle and entwined with a wreath of wilted trefoils and marsh marigolds. Reynevan pondered, but wasn’t particularly surprised. Magic was ubiquitous; people used magical attributes without even knowing what they meant or what they were really for. What was significant, however, was the fact that the hex, protecting from evil, though probably shoddily made, could have confused his charm.
+That’s why I ended up here, he thought. Damn it. But well, since I’m already here…
+He entered, ducking his head under the low beam of the doorframe.
+The membranes in the small windows barely let in light; inside, it was semi-dark, brightened only by flashes of fire from the chimney. A cauldron hung over the fire, occasionally frothing over, to which the fire reacted with a hiss and smoke, further hampering visibility. There weren’t many guests; only at one of the tables, in the corner, sat four men, probably peasants; it was hard to make them out in the gloom.
+Reynevan had barely sat down on the bench when a wench in an apron placed a bowl before him. Though at first he intended only to buy bread and ride on, he refrained from protesting—the *prażuchy* (roasted flour dumplings) in the bowl smelled deliciously and irresistibly of melted bacon fat. He placed a groschen on the table—one of the few received from Kantner.
+The wench bent slightly, handing him a linden-wood spoon. A faint scent of herbs wafted from her.
+“You’ve fallen in like a plum into a pile of dung,” she muttered quietly. “Sit still. They’ve already seen you. They’ll jump you the moment you move from the table. So sit and don’t budge.”
+She walked towards the hearth, stirred the steaming and sputtering cauldron. Reynevan sat petrified, staring at the cracklings on the dumplings. His eyes had already adjusted to the gloom. Enough to see that the four men at the table in the corner had too many weapons and armor on them to be peasants. And that all four were watching him attentively.
+He silently cursed his foolishness.
+The wench returned.
+“There are too few of us left in this world,” she muttered, pretending to wipe the table, “for me to let you perish, sonny.”
+She paused her hand, and Reynevan saw on her little finger a marsh marigold, similar to those in the hex on the post. Tied with its stem in such a way that the yellow flower formed a kind of ring jewel. Reynevan sighed, instinctively touched his own charm, the knotted and tucked-under-a-doublet-button stems of spurge, eyebright, and caraway. The wench’s eyes blazed in the semi-darkness. She nodded.
+“I saw it the moment you walked in,” she whispered. “And I knew those ones were hunting for you. But I won’t let you perish. There are too few of us left; if we don’t help each other, we’ll be wiped out completely. Eat, don’t let on.”
+He ate very slowly, feeling shivers run down his spine under the gaze of the men from the corner. The wench clattered a pan, called something back to someone in the other room, added wood to the fire, returned. With a broom.
+“I had them,” she muttered, sweeping, “take your horse to the threshing floor, behind the pigsty. When it starts, run through that door, at the back, behind the rush mat. Mind your step beyond the threshold. For this.”
+Still pretending to clean, she picked up a long straw, surreptitiously but quickly tied three knots in it.
+“Don’t worry about me,” she whispered, dispelling his scruples. “No one will pay attention to me.”
+“Gerda!” shouted the innkeeper. “The bread needs to be taken out! Move it, you slattern!”
+The wench walked away. Hunched, drab, nondescript. No one paid her any attention. No one except Reynevan, to whom she cast a parting glance that blazed like a torch.
+The four from the table in the corner stirred, stood up. They approached, spurs jingling, leather creaking, mail shirts clanking, fists resting on the hilts of swords, short swords, and baselards. Reynevan once again, this time more forcefully, cursed his lack of sense in his thoughts.
+“Sir Reinmar Bielau. Well, boys, you see for yourselves what hunting experience means. The beast skillfully tracked, the thicket skillfully surrounded, just a bit of luck, and one isn’t without a catch. And luck has truly smiled upon us today.”
+Two of the types stood on either side, one to the right, the other to the left. The third took up a position behind Reynevan. The fourth, the one who had spoken, mustachioed, dressed in a brigandine densely studded with bosses, stood opposite. Then, without waiting for an invitation, he sat down.
+“You won’t,” he didn’t ask, rather stated, “struggle, cause any fuss, or any hullabaloo? Eh? Bielawa?”
+Reynevan didn’t answer. He held the spoon between his lips and the rim of the bowl, as if he didn’t know what to do with it.
+“You won’t,” the mustachioed type in the brigandine assured himself. “Because you surely know that would be quite foolish. We have nothing against you, just another ordinary job. But we, you understand, are accustomed to making our work easier. If you start kicking and making noise, we’ll make you docile, lickety-split. Here, on the edge of this table, we’ll break your arm. It’s a tried and tested method; after such a procedure, you don’t even need to tie the patient. Did you say something, or did I imagine it?”
+“Nothing,” Reynevan overcame the resistance of his numb lips, “I said nothing.”
+“That’s good. Finish your food. It’s a ways to Sterzendorf, why should you ride hungry.”
+“Especially,” drawled the type on the right, in mail and iron vambraces, “since in Sterzendorf they probably won’t feed you right away.”
+“And even if they do,” snorted the one from behind, unseen, “it probably won’t be what you fancy.”
+“If you let me go… I’ll pay you…” Reynevan forced out. “I’ll pay you more than the Sterczas are giving.”
+“You insult professionals,” said the mustachioed man in the brigandine. “I am Kunz Aulock, called Kyrieleison. I can be bought, but not bribed. Gulp down your dumplings. Lickety-split!”
+Reynevan ate. The *prażuchy* had lost their taste. Kunz Aulock—Kyrieleison—tucked the mace he had been holding into his belt and pulled on his gauntlets.
+“You shouldn’t have,” he said, “messed with another man’s woman.”
+“Quite recently,” he added, not having received an answer, “I heard a priest, quoting drunk from some letter, perhaps to the Hebrews. It went like this: every transgression will receive its just reward, *iustam mercedis retributionem*. In plain terms, it means that if you’ve done something, you must know the consequences of your actions and be ready to bear them. You must be able to accept it with dignity. For example, look to your right. This is Sir Stork of Gorgowice. Being of similar inclinations as you, quite recently, together with his companions, he committed an act upon a certain Opole townswoman for which, if caught, they tear with pincers and break on the wheel. And what? Look and admire how Sir Stork bears his fate with dignity, how clear his countenance and gaze are. Take his example.”
+“Take his example,” croaked Sir Stork, who, incidentally, had a pimply face and a bleary gaze. “And get up. Time to go.”
+At that moment, the chimney hearth exploded, spewing fire, a cloud of sparks, and billows of smoke and soot into the room with a terrible bang. The cauldron flew out as if shot, crashed to the floor, and splashed its boiling contents. Kyrieleison jumped, and Reynevan, with a strong shove, toppled the table onto him. He kicked the bench back, and with the unfinished bowl of *prażuchy*, he smacked Sir Stork right in his pockmarked face. And he dived like a pike towards the door to the threshing floor. One of the types managed to grab him by the collar, but Reynevan had studied in Prague; he’d been grabbed by the collar in almost every tavern in the Old Town and Lesser Town. He twisted, struck with his elbow until something crunched, broke free, and jumped through the door. He remembered the warning, nimbly sidestepped the knotted straw lying just beyond the threshold.
+Kyrieleison, pursuing him, naturally knew nothing of the magic straw and promptly fell flat on his face on the threshold, sliding with momentum through pig dung. Immediately after, Stork of Gorgowice tripped over the charm, and a third ruffian fell on top of Stork, who was cursing a blue streak. Reynevan was already in the saddle of the waiting horse, already spurring it into a gallop, straight ahead, cross-country through gardens, over cabbage patches, through gooseberry hedges. The wind whistled in his ears; behind him, he heard curses and the squealing of pigs.
+He was among the willows by a drained fishpond when he heard the thud of hooves and shouts of pursuit from behind. Instead of going around the pond, therefore, he galloped along the very narrow causeway. His heart stopped several times as the causeway crumbled under the hooves. But he made it.
+The pursuit also charged onto the causeway, but they weren't so lucky. The first horse didn't even make it halfway; it stumbled with a whinny and sank belly-deep in the mud. The second horse shied, completely tearing up the causeway with its horseshoes, and slid rump-first into the sticky mire. The riders screamed, cursing furiously. Reynevan realized he had to take advantage of the circumstance and the time it afforded him. He spurred his gray with his heel, went into a gallop across the heathlands, towards the wooded hills, beyond which he expected the saving forests.
+Though aware of the risk, he forced his heavily panting horse into a strenuous gallop up the slope. At the top, too, he gave the gray no rest, immediately urging it through the groves covering the hillside. And then, quite unexpectedly, a rider blocked his path.
+The startled gray reared, whinnying piercingly. Reynevan stayed in the saddle.
+"Not bad," said the rider. Or rather, the amazon. For it was a girl.
+Quite tall, in men's attire, in a tight velvet doublet, from under which a snow-white ruff of a shirt peeked out at the neck. With a thick, fair braid falling onto her shoulder from under a sable kolpak, adorned with a tuft of heron feathers and a gold brooch with a sapphire, probably worth as much as a good steed.
+"Who's chasing you?" she shouted, skillfully controlling her dancing horse. "The law? Speak up, now!"
+"I am not a criminal..."
+"Then for what?"
+"For love."
+"Ha! I thought so at once. See that row of dark trees? The Stobrawa flows there. Ride there as fast as you can and hide in the marshes on the left bank. And I'll draw them away from you. Give me your cloak."
+"What are you saying, milady... How can this be..."
+"Give me your cloak, I said! You ride well, but I ride better. Oh, what an adventure! Oh, what a tale this will be to tell! Elżbieta and Anka will writhe with envy!"
+"Milady..." Reynevan stammered. "I cannot... What will happen if they catch you?"
+"They? Catch me?" she snorted, narrowing her eyes, blue as turquoises. "You must be joking!"
+Her mare, coincidentally also gray, tossed its graceful head, danced again. Reynevan was forced to agree with the strange maiden. That noble steed, at first glance a racer, was worth much more than the sapphire brooch on her kolpak.
+"This is madness," he said, throwing her his cloak. "But thank you. I will repay you..."
+From the bottom of the hill, the shouts of the pursuit could be heard.
+"Don't waste time!" shouted the maiden, pulling the hood over her head. "Onwards! There, to the Stobrawa!"
+"Milady... Your name... Tell me..."
+"Nikoletta. My Alkasyn, pursued for love! Fareweeeell!"
+She spurred her mare into a gallop, and it was more like flight than a gallop. She descended the slope like a hurricane, in a cloud of dust, showed herself to the pursuit, and rode across the heathlands at such a mad pace that Reynevan instantly rid himself of remorse. He understood that the fair-haired amazon risked nothing. Kyrieleison's, Stork's, and the others' heavy horses, carrying two-hundred-pound men, could not compete with the full-blooded gray mare, additionally burdened only by a light girl and a light saddle. And indeed, the maiden didn't even let herself be chased within sight; she very quickly disappeared behind the hill. But the pursuit followed her, stubbornly and relentlessly.
+They might tire her out with a steady run, Reynevan thought with fear. Her and that mare of hers. But, his conscience reassured him, she surely has her retinue somewhere nearby. On such a horse, so dressed, it's obvious that she's a high-born girl; girls like her don't ride alone, he thought, galloping in the direction indicated by the maiden.
+And obviously, he thought, swallowing the wind at a gallop, her name isn't Nikoletta at all. She made fun of me, poor Alkasyn.
+
+***
+
+Hidden among the alder carr marshes by the Stobrawa, Reynevan caught his breath, nay, even felt proud and defiant, truly like Roland or Ogier, who had outwitted and led astray the pursuing hordes of Moors. His defiance and good mood, however, deserted him when he met with a completely unchivalrous adventure, when something happened to him that, if one believed the ballads, never happened to Roland, Ogier, Astolfo, Renaud de Montauban, or Raoul de Cambrai.
+Quite simply and entirely prosaically, his horse went lame.
+Reynevan dismounted immediately when he felt the false, broken rhythm of the steed’s gait. He examined the gray’s leg and horseshoe, but could ascertain nothing. Nor, for that matter, could he do anything. He could only walk, leading the limping animal by the reins. Beautiful, he thought. From Wednesday to Friday, one horse ridden to death, another lamed. Beautiful. Not a bad result.
+To make matters worse, from the right, high bank of the Stobrawa, whistles, whinnies, curses suddenly resounded, shouted in the familiar voice of Kunz Aulock, called Kyrieleison. Reynevan pulled the horse into the densest bushes, grabbed its muzzle to prevent it from whinnying. The shouts and curses died away in the distance.
+They ran the girl down, he thought, and his heart sank to his belly, as much from fear as from remorse. They caught her.
+They didn’t catch her, they didn’t run her down, reason calmed him. They caught up, but at most with her retinue, where they realized their mistake. Where "Nikoletta" laughed at them and mocked them, safe among her knights and retainers.
+So they returned, they are circling, tracking. Hunters.
+
+***
+
+He spent the night in the thicket, teeth chattering, swatting at mosquitoes. Without closing an eye. Or perhaps closing them, but only for a tiny moment. He must have fallen asleep, he must have dreamed, for how else could he have seen the girl from the inn, the gray, unnoticed by anyone, the one with the marsh marigold ring on her finger? How else, if not as a dream vision, could she have come to him?
+*So few of us are left,* said the girl, *so few. Don’t let yourself be caught, don’t let yourself be tracked. What leaves no trace? A bird in the air, a fish in the water.*
+A bird in the air, a fish in the water.
+He wanted to ask her who she was, where she knew the charms from, what—for surely not gunpowder—had caused the chimney explosion. He wanted to ask her many things.
+He didn’t manage. He woke up.
+
+***
+
+Before dawn, he set off. He followed the course of the little river. He walked for perhaps an hour, keeping to the high riverbanks, when suddenly a wide river stretched out below him. As wide as only one in all of Silesia.
+The Odra.
+
+***
+
+A small barge sailed up the Odra against the current, as graceful in the stream as a grebe deftly gliding along the edge of a bright shallow. Reynevan watched greedily.
+So cunning you are, he thought, watching the wind fill the barge’s sail and the water foam before its bow. Such hunters you are? Sir Kyrieleison et consortes? You think you’ve tracked me so well, having surrounded the thicket? Just wait, I’ll play a trick on you. I’ll break through, I’ll slip out of your encirclement so gracefully, with such dash, that you’ll eat the devil before you find my trail again. Because you’ll have to look for that trail near Wrocław.
+A bird in the air, a fish in the water…
+He pulled the gray towards the well-worn road leading to the Odra. To be sure, however, he didn’t walk along the road, but kept to the osiers and willows. The road, as he supposed, marked the direction towards a river landing. He judged well.
+Even from a distance, he heard the raised voices of people at the landing, agitated, whether in argument or in the heat of bargaining and trade negotiations, it was unclear. It was easy, however, to recognize the language they spoke. And they spoke Polish.
+So, before he emerged from the osiers and saw the landing from the escarpment, Reynevan knew to whom belonged both the voices and the small scows, barges, and boats moored to the piles. They were Wasserpolen, Water Poles, Odra raftsmen and fishermen, an association organized more like a clan than a guild, a *maszoperia*, united not only by their profession but also by their language and a strong sense of national distinctiveness. The Water Poles controlled a large part of Silesian fishing, had a significant share in timber rafting, and an even more significant one in small river transport, where they competed quite successfully with the Hanseatic League. The Hansa did not reach higher up the Odra than Wrocław; the Water Poles carried goods as far as Racibórz. Down the Odra, they sailed as far as Frankfurt, Lubusz, and Kostrzyn, and even—in some incomprehensible way bypassing the strict Frankfurt staple right—further down, beyond the mouth of the Warta.
+The landing reeked of fish, mud, and tar.
+Reynevan, with difficulty, led the limping horse down the slippery clay escarpment, approached the landing, walking between sheds, huts, and drying nets. Bare feet thudded and slapped on the jetty; loading and unloading were in progress. One scow was being unloaded, another loaded. Part of the cargo, consisting mainly of tanned hides and small barrels of unknown content, was being moved from the landing to wagons; a bearded merchant supervised the operation. A bull was being led onto one of the scows. The bull roared and stamped until the whole jetty shook. The raftsmen cursed in Polish.
+It quieted down rather quickly. The wagons with hides and barrels drove off; the bull tried to damage the tight pen in which it was enclosed with its horn. The Water Poles, according to their custom, got into an argument. Reynevan knew enough Polish to understand that it was an argument about nothing.
+“Does anyone among you, if I may ask, sail downriver? To Wrocław?”
+The Water Poles interrupted their dispute and looked at Reynevan with not particularly friendly eyes. One spat into the water.
+“And even if,” he grunted, “so what? Your noble lordship?”
+“My horse has gone lame. And I need to get to Wrocław.”
+The Pole snorted, hawked, spat again.
+“Well,” Reynevan didn’t give up. “So how will it be?”
+“I don’t transport Germans.”
+“I am not German. I am Silesian.”
+“Aha?”
+“Aha.”
+“Then say: *soczewica, koło, miele, młyn* (lentils, wheel, grinds, mill).”
+“*Soczewica, koło, miele, młyn*. And you say: *stół z powyłamywanymi nogami* (a table with broken legs).”
+“*Stół z powy… myła… wały…* Get on.”
+Reynevan didn’t need to be told twice, but the boatman bluntly cooled his enthusiasm.
+“Hold on! Where? Firstly, I’m only sailing to Oława. Secondly, it costs five *skojec* coins. For the horse, an additional five.”
+“If you don’t have it,” interjected a second Wasserpolak with a foxy smile, seeing Reynevan fumbling in his purse with a grim face, “then I’ll buy that horse. For five… Well, let’s say six *skojec*. Twelve groschen. You’ll have just enough for the trip. And for the horse, not having it, you won’t have to pay. Pure profit.”
+“This horse,” Reynevan noted, “is worth at least five *grzywna*.”
+“This horse,” the Pole noted shrewdly, “is worth shit. Because you won’t get where you’re in a hurry to go on him. So how will it be? Will you sell?”
+“If you add another three *skojec* for the saddle and tack.”
+“One *skojec*.”
+“Two.”
+“Agreed.”
+The horse and money changed owners. Reynevan, in farewell, patted the gray on the neck, stroked its mane, sniffed, saying goodbye, after all, to a friend and companion in misfortune. He grabbed a rope and jumped aboard. The boatman cast off the mooring line from the pile. The scow lurched, slowly entered the current. The bull roared, the fish stank. On the jetty, the Water Poles were examining the gray’s leg and arguing about nothing.
+The scow sailed downriver. Towards Oława. The gray water of the Odra gurgled and foamed at its sides.
+
+***
+
+“Sir.”
+“What?” Reynevan started, rubbed his eyes. “What is it, skipper?”
+“Oława ahead.”
+From the mouth of the Stobrawa to Oława, it is less than five miles by the Odra. A scow sailing with the current can cover such a distance in no more than ten hours. Provided that one sails without long stops and has no other occupations besides sailing.
+The Wasserpolak, skipper of the scow, had countless occupations. Reynevan also could not complain about a lack of stops along the way. Generally speaking, however, he had no reason to complain. Although instead of ten hours, he spent a day and a half and two nights on the scow, he was relatively safe, traveled comfortably, rested, slept soundly, and ate his fill. Nay, he even conversed.
+The Water Pole—though he did not tell Reynevan his name and did not require to be told—was, all in all, quite a likeable and pleasant fellow. Though taciturn, not to say gruff, he was by no means surly or rude. Though simple, he was by no means stupid. The scow tacked between clumps of reeds and shallows, calling at landings now on the left, now on the right bank. The four-man crew bustled about as if scalded; the skipper cursed and urged them on. The helm was confidently held by the Wasserpolak’s wife, a woman considerably younger than him. Reynevan, not to overstep the bounds of courtesy, avoided, if possible, looking at her strong thighs visible from under her tucked-up skirt. He averted his gaze, if he could, when, during maneuvers with the steering oar, her shirt strained over breasts worthy of Venus.
+On the scow, Reynevan visited Odra landings with names such as Jazica, Zagwiździe, Kłęby, and Mat; he witnessed collective fishing and commercial transactions, as well as matchmaking. He saw the loading and unloading of various goods. He saw things he had never seen before, such as a catfish measuring five cubits and weighing one hundred and twenty-five pounds. He ate what he had never eaten before, such as fillets of that catfish roasted over embers. He learned how to protect himself from a *utopiec* (drowner), *niks* (nixie), and *wirnik* (whirlpool spirit). What the difference is between a dragnet and a trammel net, between a weir and a fish trap, between an oxbow lake and a sandbar, and between a bream and a *guściora* (a type of fish). He heard many ugly words about the German lords who oppressed the Water Poles with rapacious tolls, duties, and taxes.
+And the next morning, it turned out to be Sunday. The Water Poles and local fishermen did not work. They prayed for a long time before rather crudely made statues of the Virgin Mary and Saint Peter, then feasted, then held something like a local assembly, and then got drunk and fought.
+Thus, though long, the journey did not drag at all. And now it was dawn, or rather morning. And the town of Oława beyond the river bend. The Wasserpolak’s wife leaned on the helm, her breasts pressed against her shirt.
+“In Oława,” the skipper spoke, “various matters will take me one, at most two days. If you can manage to wait that long, I’ll take you to Wrocław, young Silesian sir. Without additional charge.”
+“Thank you,” Reynevan extended his hand for a handshake, aware that he had just been honored with a show of sympathy. “Thank you, but on the way, there was time to think over a few things. And now Oława suits me even better than Wrocław.”
+“As you wish. I’ll set you down wherever you want. Do you prefer the left bank, or the right?”
+“I’d like to get to the Strzelin road.”
+“Then on the left. I also understand that you’d rather avoid the town tollgate itself?”
+“I would prefer,” Reynevan admitted, astonished by the Pole’s astuteness. “If it’s no trouble for you.”
+“What trouble could it be for me. Helm to port, Maryśka. Sail towards Drozdowy Jaz.”
+Beyond Drozdowy Jaz stretched an extensive oxbow lake, entirely covered with a carpet of yellow-flowering water lilies. Mist drifted over the oxbow lake. Distant sounds of the already awakened Oława outskirts could be heard—the crowing of roosters, barking of dogs, the clanging of metal on metal, a small bell.
+At a given signal, Reynevan jumped onto the rickety jetty. The scow scraped against the piles, pushed aside the waterweeds with its bow, and lazily turned back into the current.
+“Follow the causeway all the way,” called the Wasserpolak. “And so that the sun is at your back! All the way to the bridge over the Oława, then towards the forest. There’ll be a stream, and beyond it, the Strzelin highway. You can’t get lost!”
+“Thank you! Godspeed!”
+Mist quickly began to rise from the river; the scow started to disappear. Reynevan slung his bundle over his shoulder.
+“Sir Silesian!” came a call from the river.
+“Yes?”
+“*Stół z powyłamywanymi nogami*!”

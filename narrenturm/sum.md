@@ -60,3 +60,34 @@
 *   For safety, Reynevan is to travel with Kantner's guest.
 *   Reynevan expresses concern about facing the Sterczas with only one knight for protection.
 *   Kantner reveals his guest is the renowned knight, Zawisza Czarny of Garbów.
+
+
+Okay, here is a bullet-list summary for each of the newly translated chapters:
+
+**Chapter 4: Reynevan and Zawisza Czarny on the Road, and a Prophetic Encounter**
+*   Reynevan and Zawisza Czarny ride together; Zawisza suffers from pronounced flatulence due to cabbage.
+*   Zawisza discusses Grunwald, stating he doesn't recall individuals in battle, and admonishes Reynevan for adultery, comparing him to a common thief. Reynevan defends his love for Adela by referencing famous romances, but Zawisza is unimpressed.
+*   Reynevan uses his herbal knowledge to successfully treat Zawisza's flatulence, earning the knight's respect.
+*   They make camp. Reynevan elaborates on shepherd's herbal lore, including "other powers," prompting Zawisza to warn him about the dangers of appearing to practice magic, especially when invoking names like Gerbert of Aurillac.
+*   Reynevan asks Zawisza about his capture at Německý Brod. Zawisza recounts his diplomatic mission for King Władysław, joining Sigismund's disastrous crusade against the Hussites, witnessing the crusader army's cowardice, and his own eventual capture after a brave fight.
+*   A strange, cat-eared creature named Hans Mein Igel appears. Zawisza calmly invites him to the fire.
+*   Zawisza explains that his honest report of the Hussite strength and crusader weakness to King Władysław Jagiełło convinced the Polish king not to send his knights on anti-Hussite crusades, saving them for conflicts with the Teutonic Order.
+*   Hans Mein Igel delivers prophecies:
+    *   For Reynevan: Love will determine his fate and save his life, as "the Goddess has many names and even more faces."
+    *   For Zawisza: He warns him against going to "Gołębi Gród" (Golubac/Dove Castle) by a great river, calling it a bad place for him.
+*   Zawisza, though wishing for a prophecy of love, accepts his warrior's fate and refuses to turn back. Hans Mein Igel vanishes.
+*   Reynevan expresses admiration for Zawisza's composure. Zawisza remarks that some humans are more alien to him than the creature.
+*   At a crossroads, inspired by Zawisza's resolve, Reynevan decides to return to Adela. They part ways, with Zawisza doubting they will meet again.
+
+**Chapter 5: Flight, Unexpected Allies, and a River Escape**
+*   Reynevan, lost in morning fog, realizes he has ridden in circles and is back at the same penitential cross. He uses a folk magic charm (*nawęzy*) to find the correct path.
+*   He arrives at an inn, drawn by smells and possibly misled by his charm due to another hex present. He is ambushed by Kunz "Kyrieleison" Aulock and his mercenaries.
+*   A serving girl, Gerda (who seems to recognize Reynevan's connection to folk magic via his charm and her own marsh marigold ring), warns him and aids his escape by creating a diversion (an exploding chimney) and using a magical knotted straw to trip his pursuers.
+*   Reynevan flees, pursued by Kyrieleison. He is unexpectedly aided by a young, fair-haired noblewoman on a superior horse, who calls herself Nikoletta. She takes Reynevan's cloak to act as a decoy and directs him to the Stobrawa marshes, easily outdistancing the pursuers.
+*   Reynevan reaches the marshes, but his horse goes lame. He hides as Kyrieleison's men search nearby.
+*   He has a dream or vision of Gerda, who tells him: "What leaves no trace? A bird in the air, a fish in the water," suggesting escape via the river.
+*   He reaches the Odra River and encounters "Wasserpolen" (Water Poles, Odra rivermen). After a brief language test (a shibboleth), he sells his lame horse for passage money.
+*   He travels for a day and a half on their scow towards Oława, observing their lives, customs, and hardships.
+*   The skipper drops him near Oława, on the way to the Strzelin road, allowing Reynevan to successfully evade his pursuers by taking to the water.
+
+
