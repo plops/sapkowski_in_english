@@ -90,8 +90,6 @@
 *   The skipper drops him near Oława, on the way to the Strzelin road, allowing Reynevan to successfully evade his pursuers by taking to the water.
 
 
-Okay, here is a bullet-list summary for each of the newly translated chapters:
-
 **Chapter 6: A Beating, New Companions, and a Theological Debate**
 *   Reynevan encounters Dorota Faber (a prostitute) and Rabbi Hiram ben Eliezer, whose wagon has a broken axle-pin. He offers to help fix it in exchange for a ride to Strzelin.
 *   While attempting repairs, they are attacked by three bandits who intend to rob them and assault Dorota.
