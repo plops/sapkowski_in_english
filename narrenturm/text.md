@@ -419,7 +419,7 @@ Morold Stercza, hit in the ear, staggered sideways with a dazed look. The rest
 swarmed the Augustinian like ants. The large figure in the black habit completely disappeared under the blows and kicks. Brother Insolent, though soundly beaten, retaliated just as soundly and completely unchristianly, entirely, but entirely against
 the humble rule of Saint Augustine.
 At this sight, the old prior became agitated. He turned red as a cherry,
-roared like a lion, and threw himself into the battle's thickest fray, striking
+ roared like a lion, and threw himself into the battle's thickest fray, striking
 right and left with fierce blows from his rosewood crucifix.
 "*Pax!*" he screamed, striking. "*Pax! Vobiscum!* Love thy neighbor! Thine own! *Proximum tuum! Sicut te ipsum!* Sons of bitches!"
 Dieter Haxt punched him. The old man's legs went out from under him, his sandals flew upwards, describing picturesque trajectories in the air. The Augustinians
@@ -747,7 +747,7 @@ in Prague, and until his death, quite recent, was a scholastic at Holy Cross
 in Wrocław. Tomasz, on the other hand, married Boguszka, daughter of Miksza of Prochowice,
 and fathered two children with her. Piotr, called Peterlin, and Reinmar, called
 Reynevan. Peterlin, or Parsley, and Reynevan, or Tansy. Such
-vegetable-herbal cognomens, I have no idea, whether they придумали them themselves or it was
+vegetable-herbal cognomens, I have no idea, whether they came up with them themselves or it was
 their father's fancy. He, by the way, if we're on the subject, fell at Tannenberg."
 "On whose side?"
 "On ours, the Christian side."
